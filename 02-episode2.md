@@ -442,3 +442,93 @@ That’s why John rants and raves at the tattoo parlor. That’s why John adopts
 
 ---
 
+Part 4
+
+J: Tyler almost embodies everything I hate about this Shittown in one convenient package. Have you ever thought of it that way? I bet you haven’t dared. 
+
+As the months have gone by since my trip to Alabama I’ve heard more and more about Tyler. I’ve heard about his tough childhood, the petty legal troubles that continue to dog him, his persistent financial problems, his struggle to support his three daughters, whom he had by the age of 21, and whom he loves dearly.
+
+John has devoted his life to restoring old clocks. Methodically and thoroughly he sorts through the busted parts of these timepieces, trying to revive a sense of beauty and order. And in a way that’s what he’s attempting to do with Tyler. Every time John picks up the phone and I ask what he’s up to, Tyler’s either there, or he was just there, or he’s waiting for him to get there. It seems like he’s giving him consistent work. John’s also been accompanying Tyler to court and hiring him a lawyer to help him clear up some misdemeanor charges and get his driver’s license back. And Tyler’s recently moved to the trailer park across the street from John, so now he can easily walk to John’s place. John’s even talking about writing Tyler and his brother Jake into his will.
+
+J: I don’t want these two bastards to know this, but when I fall over dead each other of them’s gonna get 20 ounces of gold each.
+
+B: I’ll uh, I’ll keep that secret.
+
+J: That’s assuming the goddamn cops don’t come in and steal it!
+
+But John’s relationship with Tyler is not just as a benefactor. I can tell that they get something more from one another. John will mention a walk he and Tyler took through the woods, or an expedition they made to the junkyard to search for treasures, or he’ll recount some bit of their conversation. They like to spend time together.
+
+One day John was on the phone with me and he looked out his window and started listing off the flowers that were in bloom in his yard. And the ones that were dying. He sighed and said:
+
+J: It’s tedious and brief. That’s a sundial motto. Tedious and brief.
+
+Before we had clocks we had sundials, and I had never thought about this until I started talking to John, but watching a sundial, which can be as simple as a stick in the ground, as the shadow crept along, you were actually witnessing the rotation of the earth. It’s so much less abstracted than a clock, a level closer to time itself. Anyway John told me sundials often have mottos engraved on them. John says tedious and brief is one. 
+
+B: What do you mean? Tedious and brief?
+
+J: Your life is tedious and brief. All sundial mottos are sad like that.
+
+There are hundreds of these mottos. Life passes like the shadow. Make haste but slowly. Use the hours, don’t count them. Even as you watch, I’m fleeing. Soon comes night. 
+
+These little reminders are out there, hidden in crannies around the world. I recently happened upon a sundial in the cemetery of an old Catholic mission next to a grave. Because of John I knew to look for the motto. It read: Nil bone hodei, diem perdidi. I did nothing good today. I have lost a day.
+
+J: You know I told you I used to make sundials, but you know I made them for the mathematical exercise, I would pick difficult dials to do as a test of my abilities of geometry and trigonometry. And these are things I wish Tyler and Jake could experience. There’s a real excitement in geometry and trigonometry that just you know… I think when we was building the swing, I built a swing for Tyler…
+
+This is one of the ways John and Tyler have been passing the hours together lately. They’ve been constructing an adult swing set, a giant rectangular frame, to the side of John’ s house, not far from the apple trees, with a single John Deere tractor seat hanging from it. It has a 20 foot arc of action, John says, which I understand to mean it’s a pretty gnarly swing. When John first told me about it he’d said he was building it for himself, but now he amends that.
+
+J: You know I think I built the swing for Tyler actually. I found out that an old man of 50, when he swings in a swing for about 20 minutes his back hurts and his knees hurt, so I didn’t build it for me after all. Done found that out. So I think I built it for Tyler, fuck it. Oh and I built him a pull up bar cuz he wants to be strong. I told him, well it’s nice to be physically strong but you need to be strong between the ears because physical strength goes away, you know. You need to have strong neurons. I told him you need to have a little bit of general algebra and you should always have some trigonometry and you should have some geometry.
+
+B: What does he say?
+
+J: He never, I remember this conversation, he said he never saw how it is that had anything you could do much with.
+
+I like imagining this odd pair, a polymathic middle-aged clock restorer and a tatted up kid in his 20s with a Harley and a revolver in his briefcase. Out in John’s yard on a summer’s day, sticking swing set poles into the ground, the dogs circling around them, maybe a butterfly fluttering by. I like imagining John interrupting their work for a little bit, to give Tyler a math lesson, feeling gratified that he has someone to give a math lesson too. And Tyler perhaps taking something from it, but at the very least humoring John, because he’s grateful that John’s helping him get his life together. I like know thing that this is how two people have chosen to spend an afternoon together in Bibb county Alabama.
+
+Take the gifts of this hour, one sundial says. Another, it’s later than you think.
+
+J: And I pointed out the diagonal chain that was going to shore up the uh, you know, upright,
+
+B: Of the swing set?
+
+J: Yeah, I told him now the square of the hypotenuse is equal to the sum of the square of the two sides. He hadn’t used Pythagoras’s theorem. See we could calculate the length of chain without climbing up on the goddamn top of the pole and pulling the damn diagonal with a tape measure. That was my answer.
+
+B: And what did he say?
+
+J: “Hmm,” or something like that. 
+
+B: Hmm.
+
+J: Yeah he has a lot of his daddy’s mannerisms. Hmm is often heard when there’s not a significant answer. Uh, hold, on, let me, hold on, I’m gonna piss in the sink, I hope that’s politically incorrect. Something that slipped Tyler out, yes I just pissed in the kitchen sink because uh, if the phone has enough signal I’ll just go out there and piss near one of the gardenias, the azaleas, the camellias, or the crepe myrtles because you know they like the acid. (blows nose) But I didn’t think the phone had enough signal, also instead of wasting three or four gallons to flush the commode I just peed here in the kitchen sink and used, about what a cupful of water to flush the sink. And I got a little short dick but I got a pretty good aim so I can usually aim right for the center of that damn thing without splashing everywhere.
+
+B: (Laughing) Oh man…
+
+J: But in any event, I, what was the question? I forgot.
+
+B: I forgot too.
+
+
+(Phone ringing)
+
+Skylar: Hello?
+
+B: Hey is Jake around? Is this Skylar?
+
+It’s been a couple weeks since I last spoke to John and I just got a text from Jake, Tyler’s brother, asking me to call him when I get a chance.
+
+S: Yeah this is Skylar. Uh I was the one that called you, Jake texted you for me.
+
+B: Oh, hey.
+
+S: Um, has any – hold on for just one second. Has anybody called you?
+
+B: Umm, no, not that I know of. I have a few missed calls, but I don’t think they’re from anybody down there.
+
+S: Oh.
+
+B: Why?
+
+S: Well we have some bad news to tell you.
+
+B: OK.
+
+S: John B. killed hisself Monday night.
