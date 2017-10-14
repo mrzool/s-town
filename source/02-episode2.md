@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 2
+
+> “Has anybody called you?”
+
+## Part 1
 
 In one of my first phone conversations with John before we met I asked him if the thought it was possible that maybe Kabram Burt hadn’t killed anybody. If it was possible that the murder he’d contacted me about was actually just a rumor. A fiction. No, John said. There was little doubt in his mind that it was true. And then by way of explanation he launched into this parable.
 
@@ -252,7 +256,7 @@ More, in a minute.
 
 ---
 
-# Part 2
+## Part 2
 
 B: Kabram? Hey, I’m Brian Reed.
 
@@ -342,7 +346,7 @@ K: If you’re gonna live like white trash and shit, then hell, you know you mig
 
 ---
 
-# Part 3
+## Part 3
 
 B: You there?
 
@@ -442,7 +446,7 @@ That’s why John rants and raves at the tattoo parlor. That’s why John adopts
 
 ---
 
-# Part 4
+## Part 4
 
 J: Tyler almost embodies everything I hate about this Shittown in one convenient package. Have you ever thought of it that way? I bet you haven’t dared. 
 

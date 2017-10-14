@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 5
+
+> “Nobody’ll ever change my mind about it.”
+
+## Part 1
 
 On a Sunday evening in 2015, with Christmas less than a week away, I log into Facebook at home and notice I have an urgent-seeming message from Tyler’s mother, Maya. FYI, she writes, Tyler will probably be in jail Monday. There’s a warrant out for him, theft in the first, grand jury. John’s still haunting us. I think he’s giving up, she tells me of Tyler, with a frown emoji. Then she writes, “He won’t last a day in prison. I think he’ll pull a John.
 
@@ -214,7 +218,7 @@ There’s more, right after this.
 
 ---
 
-# Part 2
+## Part 2
 
 B: Can I tell you what Tyler’s view of you guys is? Would you mind if I told you that? Can I just, I’m curious to hear what you say.
 
@@ -272,7 +276,7 @@ Rita: He sat over there and said, “Well I been taking care of Mary Grace for y
 
 ---
 
-# Part 3
+## Part 3
 
 That, Allen says, was the beginning of his and John’s friendship. They emailed often, talked every few days. About once a month Allen would go visit and they’d troubleshoot a clock together, wander around John’s yard, get lunch at the local grocery store. Allen tried to get John to come to his neck of the woods. He wanted to take him out boating on the lake, but John never came. He said he couldn’t leave his mom for that long. Allen told me something I hadn’t known about John: John had an impressive reputation for working on world-class, high-end timepieces. Some of the finest clocks in the world.
 
@@ -364,7 +368,7 @@ Allen: I think it would be a good idea, I mean, to further investigate. And just
 
 ---
 
-# Part 4
+## Part 4
 
 (phone ringing) 
 
@@ -470,7 +474,7 @@ Then listening to John go on, as outside the sky turned dark.
 
 ---
 
-# Part 5
+## Part 5
 
 John had a phrase for the M.O. Tyler would often employ when faced with an affront. Quote, “The whoop ass now solution.” John cared for Tyler, but he was also perpetually frustrated by him, and was fixated on the possibility that if Tyler didn’t get his life in order soon he could end up becoming an irredeemable fuck up. When Tyler did something John didn’t approve of, like party too much at the tattoo parlor, or get in a nasty screaming match with one of his exes, or get locked up in jail and ask John to bail him out, it would annoy John.
 
@@ -511,7 +515,7 @@ J: Doesn’t seem like a very good track record for me, is it?
 
 ---
 
-# Part 6
+## Part 6
 
 It’s not long before I realize, follow any finger that is being pointed in the aftermath of John’s suicide and there will be another set of fingers on the other end, not only pointing right back, but in a bunch of other directions too. Everyone is pointing at everyone. One afternoon at my Best Western along the highway I’m walking to the elevator to go to my room when who should pop out of the stairwell but John’s cousin, Rita. By the time it registers in my brain that it’s her, we’ve already moved past each other and it’s too late and awkward to turn back and say something. This is weeks after I’d met Rita at probate court and she declined to do an interview, a whole separate trip. I had no idea she’d be in town, and now I’m afraid she might think I’m stalking her. So I ask the front desk which room she and her husband are in, four rooms down from mine, and write her a note which I slip under her door, explaining that I didn’t know she would be here, but since we both are, would she be open to meeting with me? And by the way, sorry for creepily leaving a note under your door.
 

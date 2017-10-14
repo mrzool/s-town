@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 4
+
+> “If anybody could find it, it would be me.”
+
+## Part 1
 
 My first visit to Alabama. John’s bedroom. When he was still alive.
 
@@ -166,7 +170,7 @@ The hunt continues, in a minute.
 
 ---
 
-# Part 2
+## Part 2
 
 When Tyler cleared out all that paperwork from John’s house, in the days right after he died, he did find something else that was curious. It’s a list John wrote, on a sheet of yellow notebook paper, titled at the top, “People to contact.” Tyler sent me a photo of it, and Faye Gambell, the town clerk, told me that John sent a copy to her as part of his instructions before he drank cyanide.
 
@@ -237,7 +241,7 @@ Allen: That this is a master.
 
 ---
 
-# Part 3
+## Part 3
 
 That, Allen says, was the beginning of his and John’s friendship. They emailed often, talked every few days. About once a month Allen would go visit and they’d troubleshoot a clock together, wander around John’s yard, get lunch at the local grocery store. Allen tried to get John to come to his neck of the woods. He wanted to take him out boating on the lake, but John never came. He said he couldn’t leave his mom for that long. Allen told me something I hadn’t known about John: John had an impressive reputation for working on world-class, high-end timepieces. Some of the finest clocks in the world.
 
@@ -331,7 +335,7 @@ And for the second time, I find myself embarking on an investigation at the behe
 
 ---
 
-# Part 4
+## Part 4
 
 (phone ringing) 
 
@@ -437,7 +441,7 @@ Then listening to John go on, as outside the sky turned dark.
 
 ---
 
-# Part 5
+## Part 5
 
 I really enjoyed my conversations with the guys on John’s list. I learned a lot about John, but also about the people John kept as friends. I learned about lathes, and dividing engines, and double helical gears, and tolerances, and sidereal time, and also what an escapement is, the mechanism inside a clock or a watch that actually does the ticking. Many of these horologists and clock collectors told me how they had become fascinated with clocks as children, and how even at age 57 or 80 that fascination hadn’t dwindled. 
 
@@ -521,7 +525,7 @@ The cousins were home in Florida while Tyler did this, but they must have gotten
 
 ---
 
-# Part 6
+## Part 6
 
 It’s not long before I realize, follow any finger that is being pointed in the aftermath of John’s suicide and there will be another set of fingers on the other end, not only pointing right back, but in a bunch of other directions too. Everyone is pointing at everyone. One afternoon at my Best Western along the highway I’m walking to the elevator to go to my room when who should pop out of the stairwell but John’s cousin, Rita. By the time it registers in my brain that it’s her, we’ve already moved past each other and it’s too late and awkward to turn back and say something. This is weeks after I’d met Rita at probate court and she declined to do an interview, a whole separate trip. I had no idea she’d be in town, and now I’m afraid she might think I’m stalking her. So I ask the front desk which room she and her husband are in, four rooms down from mine, and write her a note which I slip under her door, explaining that I didn’t know she would be here, but since we both are, would she be open to meeting with me? And by the way, sorry for creepily leaving a note under your door.
 
@@ -545,7 +549,7 @@ Allen: If the gold was there I think, you know, somebody came and got that gold,
 
 ---
 
-# Part 7
+## Part 7
 
 Finally, I make a second visit to the Woodstock town clerk, Faye Gambell, who, after seeming not to have done a very thorough job contacting the people on John’s list, has been the subject of much of the suspicion. And after some inscrutable responses to my questions…
 

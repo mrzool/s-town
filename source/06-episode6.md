@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 6
+
+> “Since everyone around here thinks I’m a queer anyway.”
+
+## Part 1
 
 From Serial and This American Life, I’m Brian Reed. This is Shittown.
 
@@ -208,7 +212,7 @@ More, in a minute.
 
 ---
 
-# Part 2
+## Part 2
 
 Olen and I are sitting with each other, the first night we’ve met, and he’s telling me all these memories of John and it takes hours before I understand for sure whether he and John were ever a couple, if they ever actually tried. I don’t ever ask Olen outright, but I don’t need to because it gradually becomes clear that it never happened for them. And that for Olen his relationship with John still feels unresolved. He’s telling me stories, remembering things, and in the course of this his mind drifts now and again to a few tiny moments, way in the past that stayed with him because in them he and John seemed to acknowledge something that they found very difficult to speak about. Like one time when they were riding in the car together through Bibb county and John had made some remark about Olen that Olen thought was unfair, and Olen told John as much. 
 
@@ -266,7 +270,7 @@ And so this is what Olen and John’s relationship eventually settled into. They
 
 ---
 
-# Part 3
+## Part 3
 
 Olen: I want to ask you a question, if I may.
 

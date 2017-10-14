@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 7
+
+> “You’re beginning to figure it out now, aren’t you?”
+
+## Part 1
 
 Before I got to know an antiquarian horologist and he committed suicide, I'd never thought of clocks as anything special. To me, they were just like appliances that tell time. And, an antique clock? I didn't think of that as any different from, say, an antique chair. But then I went to John's friend Bill's house. He asked that I not use his last name.
 
@@ -250,7 +254,7 @@ More, right after this.
 
 ---
 
-# Part 2
+## Part 2
 
 One day I’m talking on the phone to one of John’s old friends, a clock customer of his in Utah named Bill Mayer, and he starts describing this thing he would watch John do when he’d use to visit John’s property in Woodstock.
 
@@ -300,7 +304,7 @@ But all that said, there are symptoms of mercury poisoning that I don’t know i
 
 ---
 
-# Part 3
+## Part 3
 
 One day in the year and half before he died, John called the other town clerk, Faye Gambell, who John would eventually call as he killed himself. Faye picked up.
 
@@ -368,7 +372,7 @@ J: Mostly turn off the damn light and listen to the sound of the tweeting birds 
 
 ---
 
-# Part 4
+## Part 4
 
 Jimmy: Lord help me! Yep. 
 
@@ -470,7 +474,7 @@ Tyler: He fuckin, was addicted to that shit. He wanted me to come over there eve
 
 ---
 
-# Part 5
+## Part 5
 
 There’s a story that’s taken hold among some locals and people surrounding John’s cousin Rita, and also some of John’s close friends, of what led to John’s demise. That John was desperate for company, and influenceable, and that he started hanging out with unsavory people and drinking, which according to most people he hadn’t done for much of his life, and getting tattoos. As one man told me, “you lay with dogs, you get fleas.” And the dog he was talking about was Tyler. 
 

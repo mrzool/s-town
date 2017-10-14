@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 1
+
+> “If you keep your mouth shut, you’ll be surprised what you can learn.”
+
+## Part 1
 
 When an antique clock breaks, a clock that's been telling time for two hundred or three hundred years, fixing it can be a real puzzle. An old clock like that was handmade by someone. It might tick away the time with a pendulum, with a spring, or with a pulley system. It might have bells that are supposed to strike the hour. Or a bird that’s meant to pop out and cuckoo at you. There can be hundreds of tiny, individual pieces, each of which needs to interact with the others precisely.
 To make the job even trickier, you often can't tell what's been done to a clock over hundreds of years. Maybe there's damage that was never fixed, or fixed badly. Sometimes entire portions of the original clockwork are missing, but you can’t know for sure because there are rarely diagrams of what the clock is supposed to look like. A clock that old doesn't come with a manual. 
@@ -152,7 +156,7 @@ J: I believe we have a genuine murder that resulted from some kids probably pick
 
 ---
 
-# Part 2
+## Part 2
 
 After that first conversation with John I do some research online, and I find no evidence of this murder. I see there is a place called K3 Lumber owned by the Burt family. K3? In rural Alabama? Is that just a coincidence? 
 The family also owns a large timber operation, John called it the KKK lumber mill. But it’s actually called KyKenKee Inc. And on their website they explain that the Ky, Ken, and Kee in KyKenKee refer to the three brothers who currently run the family business: Kyle, Kendall, and Keeth Burt. Kabram Burt is Kendall’s son. His name begins with a K too by the way. I discover a Facebook page for a Kabram Burt in the area, with just a single disturbing post that tells people to raise hell and kill black babies. Though it uses a word other than black.
@@ -258,7 +262,7 @@ M: (laughs) Since time I reckon.
 
 ---
 
-# Part 3
+## Part 3
 
 J: Rosemary that the winter killed. An old house that looks like Nosferatu. 
 
@@ -337,7 +341,7 @@ J: (laughing) To me it looks like Auschwitz.
 
 ---
 
-# Part 4
+## Part 4
 
 Before the jaunt around Shittown, back inside the maze, John and I have stopped walking for a second. We’ve hit dead end after dead end and now John is craning his neck and scoping out our options.
 
@@ -399,7 +403,7 @@ B: Oh.
 
 ---
 
-# Part 5
+## Part 5
 
 B: Can we pinpoint any closer than August, do you think?
 
@@ -527,7 +531,7 @@ J: A motherfuckin gold-plated dime! (burps) Shit.
 
 ---
 
-# Part 6
+## Part 6
 
 For thousands and thousands of years we did not have clocks or calendars or any method for telling time in the way we think of telling time now. And time was happening nonetheless. As humans we must have sensed it. Maybe we heard it: the rhythm of it as we sharpened a tool. It’s amazing if you think about it. The sheer variety of methods we’ve concocted over the centuries to keep track of time. We pour sand through a glass. We swing pendulums back and forth. We count the cycles of radiation coming off an atom. We count Mississippis. 
 When John was a teenager, he became fascinated with what was possibly the very first formalized way humans came up with to keep track of time: watching the sun and the stars and the phases of the moon. He built his own version of something called an astrolabe, which he’s showing me.

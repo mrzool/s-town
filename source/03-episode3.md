@@ -1,4 +1,8 @@
-# Part 1
+# Chapter 3
+
+> “Tedious and brief.”
+
+## Part 1
 
 Skylar: Has anybody called you?
 
@@ -224,7 +228,7 @@ More, after this.
 
 ---
 
-# Part 2
+## Part 2
 
 I’ve been told by Skylar that John’s funeral would be small, probably just the Goodson family and his mother, Mary Grace. But when I arrive at Green Pond Presbyterian Church on this sweltering Monday morning, a week after John died, June 29th, 2015, far more people have shown up than I expected. There are 30, maybe 40 people here, and I know who very few of them are. 
 
@@ -272,7 +276,7 @@ Brother Ben: Father God, thank you again. The mind that he had could do things L
 
 ---
 
-# Part 3
+## Part 3
 
 When the service is over there’s some milling about. People give their condolences to Mary Grace. Then the cousins help her toward the car. Tyler is there and for a few moments I see him and Mary Grace talking. Then I see the female cousin intervene and guide Mary Grace away from him.
 
@@ -332,7 +336,7 @@ Boozer: I’ve never, I’ve never had that before, I don’t know, I’d guess 
 
 ---
 
-# Part 4
+## Part 4
 
 While I’m at Boozer’s office he invites someone over to meet me that he thinks I should talk to. Her name is Faye Gambell. She’s Woodstock’s town clerk, and in fact Faye, not Tyler, was the last person to speak to John before he committed suicide. She and I go back to her office at town hall, just down the road from Boozer’s. It’s a small building with the mayor’s office in it and the Woodstock Police Station, and a common room that retirees play card games in in the mornings, some game called Skip-bo, but on one Tuesday a month becomes the municipal courtroom. 
 
@@ -364,7 +368,7 @@ Faye says John also told her that a bunch of Tyler’s belongings would be in th
 
 ---
 
-# Part 5
+## Part 5
 
 Right after the funeral there’s a luncheon at the house of someone who works at the local bank, but Tyler and the rest of the Goodsons don’t feel welcome there, so they go to Tyler’s grandmother’s place instead. This is their family headquarters. Pretty much all day and into the night you can go to Granny’s and expect to find some combination of Tyler’s family hanging out around the little concrete table under the tree in back. Which is where they are now, having their own post-funeral gathering. People wander in and out, seeming a little out of it, saying the things you say on a day like this. Things like “This all feels like a bad dream,” and, “I keep thinking I can just pick up the phone and call him.”
 
