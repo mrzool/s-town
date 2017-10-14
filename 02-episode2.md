@@ -342,7 +342,7 @@ K: If you’re gonna live like white trash and shit, then hell, you know you mig
 
 ---
 
-Part 3
+# Part 3
 
 B: You there?
 
@@ -442,7 +442,7 @@ That’s why John rants and raves at the tattoo parlor. That’s why John adopts
 
 ---
 
-Part 4
+# Part 4
 
 J: Tyler almost embodies everything I hate about this Shittown in one convenient package. Have you ever thought of it that way? I bet you haven’t dared. 
 
