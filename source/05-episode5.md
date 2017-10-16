@@ -278,199 +278,123 @@ Rita: He sat over there and said, “Well I been taking care of Mary Grace for y
 
 ## Part 3
 
-That, Allen says, was the beginning of his and John’s friendship. They emailed often, talked every few days. About once a month Allen would go visit and they’d troubleshoot a clock together, wander around John’s yard, get lunch at the local grocery store. Allen tried to get John to come to his neck of the woods. He wanted to take him out boating on the lake, but John never came. He said he couldn’t leave his mom for that long. Allen told me something I hadn’t known about John: John had an impressive reputation for working on world-class, high-end timepieces. Some of the finest clocks in the world.
+One thing Rita has in common with her cousin John, she too is a fastidious record keeper. She’ll eventually give me a copy of a daily journal she’s been keeping of what’s occurred since John’s death, in impressive detail. She lists each little interaction with authorities in there: lunches, visits to the pharmacy. When we’re done talking tonight, Rita will enter this, our very phone call, into the journal. Quote, “talked to Brian Reed, reporter, for over three hours.” I’m also in there on day 18 at probate court, described as, being with America Radio, and that I showed up and, quote, “seemed to know a lot of information,” which I find flattering. On this day, according to Rita’s journal, after the social worker declined to release Mary Grace to Tyler, Rita got a call from a friend…
 
-Allen: You know he was just an absolute genius, I mean, if you uh, wanted to know something or had a problem with clocks you needed to go see John McLemore. 
+Rita: Saying that Tyler was over at the house with two trailers and two trucks. 
 
-B: Really? That’s like, that was known throughout…
+At John’s house, there to load up stuff, allegedly.
 
-Allen: That was actually known, probably, I know on the eastern seaboard. He would have people coming down from, uh, Massachusetts driving their car to Woodstock, Alabama to get their uh, bracket clocks fixed and stuff like that. 
+Rita: So I got in my car and got down there and the police have already run him off. And the police is the one that told me you know, you might want to go ahead and try to get custody of Mary Grace.
 
-B: Because he was the closest and best they could find?
+In her journal she wrote, quote, “That is when I realized that Tyler was a gold-digger, and I decided to fight him for Mary Grace’s sake.” And the days become immediately busy. The journal documents an urgent and successful effort involving Faye Gambell, the town clerk, and Boozer Downs, the town and John’s attorney, to get Rita temporary guardianship over Mary Grace. It documents a trip to Lowe’s to purchase locks to secure Mary Grace’s house. A trip to the post office where Rita says she learned that Tyler’s girlfriend had picked up a package addressed to John’s PO Box. A trip to the police station to report that, and choose Tyler’s girlfriend out of a lineup, which never led to any charges. A trip to the nail salon for Mary Grace to get a pedicure. Leftovers for lunch on Tuesday. The trip to Boozer Downs’ office where they met with Tyler and kind of sort of tried to talk things out, but that went south when Mary Grace said to him,
 
-Allen: Well not the, I wouldn’t say the closest, probably the best. 
+Rita: Don’t call me Mama. I’m not your mama. 
 
-In his earlier years, John used to travel to England where he visited with fellow horologists. He wrote about horology, consulted on horology books. And he was known for doing elements of restoration that very few people still do. Such as an ancient process for making things gold known as fire gilding, that is very dangerous and illegal in some places because it requires burning mercury. And another thing Allen tells me that I wanted to find out, John made good money.
+Which Rita says Mary Grace uttered of her own volition. She also says she didn’t break up Tyler and Mary Grace’s conversation at the funeral, like Tyler told me, that she’s not brainwashing Mary Grace against him. There’s a trip documented in the journal to Walmart to get John some burial clothes, a trip to the funeral home, and to the florist. To the cemetery, to point out where to dig John’s grave.
 
-Allen: John probably in the 90s could have sat on his butt and worked 2 or 3 days a week and made $150,000 a year. Easy. There’s no telling how much money he made in the clock trade. And John just probably packed that money away.
+Rita: And let me tell you another funny story, well it’s not funny, but. The uh, undertaker came out and told me, he says, now you know John’s got some real big gold nipple rings. And I says, really? I didn’t know that. 
 
-B: I mean who knows, but that sounds to me like the kind of money that could potentially amass to a bountiful hidden treasure. 
+When I said Rita corroborated nearly everything Tyler told me, well, here you go. Rita told the undertaker...
 
-There comes a point in our conversation when Allen has a question for me.
+Rita: I want those nipple rings. I just want them.
 
-Allen: But uh, as far as John’s… you said you found out through Tyler?
+Sure, the undertaker said. No problem. But then as Rita and Charley were leaving the cemetery they realized he hadn’t given them to them.
 
-B: Uh, his sister-in-law.
+Rita: So I went and asked the undertaker where were they, and he said, Oh we couldn’t, we couldn’t get them off. Something about how they were screwed on and all this stuff. And uh, you know, I really wish I had pursued that now that I think back. I really don’t think the nipple rings were on him. I think the undertaker got them. Cuz you’re telling me that you got a guy there that y’all’ve done an autopsy on and you’ve cut him from neck to privates and you can’t get a nipple ring off? Cut his nipple off! He’s dead!
 
-Allen: His sister-in-law?
+B: (repulsed) Ugh! Wait, why, that’s like… why would you want those?
 
-B: Yeah.
+Rita: Well, you know what, the main thing I got to thinking about is I didn’t know if it was just something that I would have of his that maybe I could pass on to Mary Grace or something, or just something to keep of his, you know what I mean?
 
-That is, as far as John’s suicide, though Allen doesn’t speak the word.
+B: But wait, you would have given the nipple rings to Mary Grace? But she didn’t know…
 
-Allen: I guess that was, how long, how long ago?
+Rita: Well I wouldn’t have but it seemed it was just something of his, I guess, that… I didn’t have anything of his.
 
-B: I was able to, I went to the funeral. I was able to go to the funeral. It was right before – 
+Rita says part of the reason is that she’s had a lot of deaths in her family and doesn’t trust funeral homes. But still.
 
-Allen: You was? Well you’re better off than I was. I didn’t find out, till a uh, nearly a week and a half later, you know, I didn’t really have a chance to, you know, say goodbye to him.
+B: Ugh. I’m sorry, I’m just reeling from you saying that they should cut his nipples off. Ugh.
 
-B: I’m sorry.
+Rita: I’m just saying, don’t tell me that you couldn’t get those nipple rings off. 
 
-Allen: Yeah.
+Rita is now going after Tyler on multiple fronts. She’s pressed charges for trespassing, she’s pressing charges for theft, of the trailer and buses, both of which the Woodstock police chief pointed out to me they did arrest Tyler on. She will soon bring the district attorney’s office the evidence she’s gathered that Tyler faked John’s signature on the titles for John’s cars. And a grand jury will also indict him on multiple counts of forgery. The assistant district attorney told me he’s impressed by how industrious Rita’s been, investigating these matters completely on her own. Rita tells me she thinks Tyler should do time for what he’s done.
 
-Allen had been out of town for a watch and clock convention shortly before John died, and hadn’t talked to him for a while. When he got back he and John emailed a bit. The day John would go on to kill himself Allen wrote him, telling him he wanted to come visit that week. That night, while Allen was teaching vacation bible school, he saw a call come in from John. He silenced it, and then called him back when he got home. No answer. Called him the next day. No answer. As the week went on it was the same. Allen got in touch with a mutual friend of his and John’s, a mechanic in Birmingham, whose also on John’s contact list, and asked him if he’d heard from John. He hadn’t. Allen wanted to drive to John’s place to check on him, but his wife was pregnant and sick. He decided to give it one more day, and if neither he nor the other friend heard from John, he was gonna call the Bibb county sheriff’s department. He knew John hated cops and authority, and might not forgive him for it. But he also knew John had talked about suicide, so he was ready to risk it.
+Rita: To me, anyone that goes over and takes other people’s possessions is a criminal. 
 
-Allen: You know sometimes I had to weigh that out in my head, was it worth it losing him as a friend just to, uh to uh see him get help. And I tried to get John help. I tried, I was like John, you know, let me carry you to a doctor or something. Let’s get you on some medicine or something, you know. I said we’re not going to no psychiatrist or noting like that, we can just see a regular practice doctor and see if we can’t get you on some kind of antidepressant, some kind of mood stabilizer, and he was like oh no, I ain’t taking no medicine, I’m not doing this, I’m not doing that. Even went to the bookstore and got a herbal book, uh, of more holistic, you know healing stuff that would help with depression and mood swings, and uh, carried that to him said why don’t you read this right here see if you can get something out of this? I said you probably have this in your yard. And I thought he would take on that since you know he liked horticulture maybe he could –
+Charley told me he’s not necessarily mad at Tyler. Tyler’s just doing what he knows. He’s a criminal. That’s what Tyler’s been reduced to in their eyes. But this is what conflicts like this do to the participants: reduce them. Half a year into the fight Rita says she feels minimized by it too. Like the fight has turned her into someone meaner and cruder than she is.
 
-B: That’s a good idea.
-
-Allen: Could help or heal himself holistically. And uh, that book just sit there. It’s probably sitting there to this day in his shop. 
-
-B: Wow, I had no sense talking to him that he had people in his life, like you, who were trying to help him this way.
-
-Allen: I don’t think John realized how many people cared for him. And I just think that’s really sad because I actually think he died thinking he was lonely.
-
-Though I’m not sure there’s much of a difference between being lonely, and thinking you are. Allen never got to the point of asking the sheriff to check on John, because the night before he was planning to do that he was driving home from church with his family and got a call from Faye Gambell, the town clerk who John had called as he drank cyanide, and to whom he’d given his final instructions and contact list. Allen says as soon as she told him she was with Woodstock town hall, he knew. He immediately pulled over to the side of the road. He was devastated. His whole body was shaking. But then Faye told him when John had actually died. And to the sorrow were added some other emotions.
-
-Allen: When I found out when it had happened, you know, I was kind of irate. I didn’t find out until after John had done been buried.
- 
-John had been in the ground for more than a week and Faye was just now calling him. Allen says he pressed Faye on it, asked her why she was notifying him after the funeral. And he says she acted kind of weird about it.
-
-Allen: She tried to say that she, uh, tried to call me but I looked back through my phone there was no call, no message or anything. I’ve got nothing. I mean that just seems like a pretty weak excuse, somebody call and say you well, I tried you and I couldn’t get you on the phone and not leave a message or anything like that.
-
-And it’s not like she had to dig up his information or something. John sent it to her.
-
-Allen: I mean I’m what, like fourth on the list right there. This would be like, this is who you need to call and contact. I mean, I’m just, I find that kind of uh, that kind of disturbed me.
-
-It disturbed Allen not only because it caused him to miss his friend’s funeral, but because it’s pushing his mind to some unpleasant places. The day before I met with Allen he actually spoke with Tyler for a while and got the whole low down on the cousins. Rita, the cousin, is listed halfway down on John’s contact list. Allen finds it questionable that Faye or someone else managed to reach her yet he and these other names are all at the top of the sheet, and somehow he was skipped over. 
-
-Allen: I’d be very interested to know, you know, the other people, when were they actually called? Was it just me, was it, uh, the top people on his contact list? Cuz I think they knew that these people knew John best. And I think they probably actually tried to keep us away from the situation for some reason or something. 
-
-B: (surprised tone) Really?
-
-Allen: Yeah. I mean, from talking with Tyler, the way stuff’s uh, played out in this, uh, it’s uh, it’s a little fishy.
-
-Allen continues in this mode, tiptoeing toward something.
-
-Allen: I’m just trying to figure, you know, what would it benefit a person not to try to contact a person? I don’t know if they just wanted, they didn’t want people down there until the situation was under control the way they wanted it to be. Maybe it’s somebody trying to uh take control of something. Cuz they would know that John’s close close friends would know what I’m talking about.
-
-B: I can tell Allen is being purposefully vague here. I think maybe he’s not sure what I know already, or else maybe he knows I know? So he knows he doesn’t have to say it out loud? But I’m not actually sure I do know what he’s talking about, though maybe I do know. Anyway, he is now making weird eyes at me.
-
-B: Yeah. You’re looking at me in like a coded way. Um.
-
-Allen: You know I can tell you my theory about something but I’m not gonna do it on the air.
-
-B: Do you think I should call the other people on the list?
-
-Allen: I think it would be a good idea, I mean, to further investigate. And just for the simple fact that they, they could possibly not even know. I mean, you’d be doing John a favor, cuz surely he would want them people to know or they wouldn’t be on the list. 
-
-(phone ringing)
+Rita: I’m serious, I mean, as a Christian I even have trouble with this because you know you’re supposed to love everybody and I don’t want him to think that this is the kind of person I am. I’m not a bad person. I’m not, I’m not that type of person.
 
 ---
 
 ## Part 4
 
-(phone ringing) 
+Tyler: You’d think I was some kind of drug addict, or a thief, or a goddamn, some kind of criminal with all these, all this mess on me. But I don’t know I don’t consider myself a damn criminal. I mean, hell I don’t do nothing but work and take care of kids. 
 
-Bill: Hello?
+The feud is wearing on Tyler too. That Sunday night when I spoke to his grandmother on the phone, the night that she and Tyler’s mother were freaking out that the judge might throw him in jail the next day, well that didn’t happen. Tyler paid his $1000 bond and remained free. Right now his forgery and theft case is scheduled to go to trial in early summer. He says he sees nothing wrong with the measures he’s taken. Yes, he took the trailer and buses. But would a criminal have bills of sales for those things? Which Tyler has, even though Rita and Charley claim they must be fake, based on the dates. And would a criminal have asked the Woodstock police, after telling them about the bills of sale, if he was allowed to go on John’s property and repossess the trailer and buses? Because according to Tyler that’s what he did, and the police said it was OK. And would a criminal say this, when he got wind that he was being investigated for possibly forging John’s name on a document?
 
-B: Hi, is this Bill Meyer?
+Tyler: I don’t see how in the hell they can prove that, you know. 
 
-Bill: Yes.
+B: Is there something to prove?
 
-B: Hi, um Bill, were you a friend of John McLemore’s?
+Tyler: I don’t know, I mean I don’t know what they’re trying to prove, but uh…
 
-Bill: Yeah?
+When Tyler and I talk about this, he doesn’t yet know what the forgery allegations are about exactly. The county hasn’t yet filed the charges against Tyler, claiming he’s forged John’s signature on the titles for John’s truck and Mercedes. They’ll file those soon, but at the moment when we’re talking, he’s simply heard word that someone has been going around, asking questions about him, about a forgery, and he thinks it maybe has to do with the bills of sale for the buses. Either way, I ask him broadly,
 
-B: Um, I’m calling with some sad news that maybe you’re aware of, but he passed away earlier this summer.
+B: But is there a forgery that happened, Tyler?
 
-Bill: Who did?
+Tyler: Oh, I don’t know. 
 
-B: John B. McLemore, yeah.
+B: OK. 
 
-Bill: Oh, I didn’t know that! I’ve been uh, writing emails to him and he hasn’t uh responded. And I called him I think… oh, what’d he die from?
+Tyler: Not on my part.
 
-B: Uh, he actually committed suicide I’m sorry to say.
+Not on my part, he says. For a year, Tyler and I have talked regularly, on the phone and when I come to Alabama. He’s told me all sorts of stories, some about John, but even more just about his life. About the abuse his father Rodney inflicted upon him and his family when he was a kid. Abuse Tyler’s mother and grandmother have told me about too. Rodney, by the way, said to me that he was not abusive. He used a different word. He said he whooped his family. Tyler’s told me about what it was like just as he was entering high school, to have Rodney get convicted for sexually abusing a child, to have to suddenly cram with his family into his grandmother’s house and have everybody at school know what was going on. About what it’s like to have your license suspended for failing to pay a fine one time, for a minor traffic offense, and then to keep getting pulled over again and again because you have no other way to get to work in rural Alabama so you’re driving without the license, and the fines keep mounting, what John called fine slavery, and so much of the money you do manage to make you have to shovel right back over to the courts or lawyers. About what all that does to your worldview.
 
-Bill: Oh for god’s sake. What happened to his mother?
+Tyler: I know I got some bad luck, I’ll tell you that. Like I just expect the worst to happen everywhere I go and just hoping I can get surprised that it don’t.
 
-Bill Meyer, number 7 on John’s list. Clearly he wasn’t called. Bill was a friend and clock customer of John’s for decades. He lives in Utah, in a house he describes as being more like a museum than a house. He’d drive from Utah to Alabama sometimes to visit John.
+Getting Rodney as a dad, that is a bad hand. A cashier refusing to sell you beer at Walmart because you happen not to have a valid ID with you, not so much. But Tyler complains about that kind of thing all the same. Bouncing between his many grievances, between big injustices he’s experienced and petty ones. He and I have had long, sometimes frustrating talks about this, where I’ve tried to understand his justification for some of the choices he makes, like earlier on when the legal battle was just starting to get more serious with Rita and Charley and I suggest that he might have an opportunity to prevent it from escalating. 
 
-Bill: John seems to have made a insurmountable challenge out of living. It’s so sad to hear that he finally did it. It just, uh, it just makes me so incredibly sad.
+B: Have you considered giving the buses back just to avoid the trouble?
 
-Machine voice: Hello. You have reached micros and the escapement maker.
+Tyler: Fuck no!
 
-This is the answering machine of a horologist friend of John’s, in a small town in the pacific northwest, who asked that I not use his name because he’s very private. He picked up as I was leaving a message. He says Faye did tell him John had died, but only after the funeral.
+He told me it tickled him. That was his word, tickled, to see Rita and Charley struggle. And then there’s this story, which gave me a vivid sense of how Tyler sees things. He had recently hired a guy to do some electrical work on the house he’s building, and according to Tyler the guy stole two of his grandfather’s old guns out of Tyler’s home, so Tyler came up with a whole plan. He contacted the guy and acted like he hadn’t noticed, told him there was more work to be done, and tricked the guy into coming back over to his house where he was waiting for him with a rifle in hand, and walked him over to a shed.
 
-Horologist Friend: John meant a hell of a lot to me. He meant a hell of a lot to me. 
+Tyler: I had a chair sitting out there in that shed, and some damn snips, hedge clipper snips, propped up beside it waiting. And I was gonna cut a finger or two off. I mean, I was gonna snip fingers until he had my guns delivered back here.
 
-And then another Brit from the list, Duncan Grieg. 
+B: (shocked) Tyler, really?
 
-Duncan: At the moment, I’ve in front of me got a whole load of letters and photographs that John’s sent me over the years.
+Yes, really. At first I thought maybe Tyler was just saying something ridiculous, embellishing. But I ask him about it and he’s clear with me. He was serious about this and going into that shed had every intention of following through. He says he did have a change of heart once he got the guy into the shed, and ended up instead whipping the guy across the face with the gun and beating him silly, rather than dismembering him. But he hasn’t had a change of heart about the appropriateness of this plan. As we discuss it in retrospect he still thinks it would be a completely acceptable thing to do, given the situation. Which I find unsettling. 
 
-A respected clock restorer from Tonbridge, England, who never met John in person but over more than a decade spent many late-night hours developing a friendship with him on the phone and via letters. I was the one who informed Duncan of John’s death.
+B: (shakily) You thought it would be OK to cut his fingers off?
 
-Duncan: Yeah as you can probably tell I’m very sad about it. I think he should have gone on to been a curmudgeonly old gentleman that survived the ravages of time. 
+Tyler: Buddy, if he thought it was ok to come in here and steal my granddaddy’s gun that is irreplaceable, then yeah. I was gonna fix a thief. I believe it would have took one finger and them guns would have been found, if one finger hadda went. It wouldn’t have took two or three, I guarantee you. 
 
-Tom: The enigma that John McLemore was.
+I kept questioning Tyler, trying to understand why he thought this was OK, but nothing he said did quite make me understand. And I realized it was probably gonna stay that way. Eventually as I’m saying goodbye, about to hang up the phone, Tyler asks me this.
 
-And Tom Moore, John’s chemistry professor in college, now a university chancellor who went on to become a lifelong friend.
+B: Alright man, I’m gonna let you go. Can you just do one favor for me?
 
-Tom: One of the most incredi – I’m gonna start crying. I can’t help it (crying a bit).
+Tyler: I don’t me being I’m a bad person at all, do you? Do you see me being a bad person?
 
-B: It’s OK.
+B: Do I?
 
-Tom: (teary voice) One of the most incredible people I’ve ever known.
+Tyler: Yeah.
 
-Like with others, Tom says the town clerk, Faye, did call him about John’s suicide, but only after he’d been buried. After talking to the seven people at the top of John’s list, I learn that none of them were at John’s funeral because none of them were contacted in time, and some not at all. 
+B: No man, I see you as a complicated, normal person, you know?
 
-It was interesting. Most of these men didn’t know each other beyond maybe having interacted once or twice in horological circles over the years. The men talked to me for hours, without batting an eye, even if I’d just called them cold and informed them that their friend had committed suicide. Which, at first I thought was pretty remarkable. But then it occurred to me that they were all friends of John B. McLemore’s. Which means you are predisposed to having long, rambling conversations on the phone. Of these friends, the one who knew John the longest, since he was a teenager, was Tom Moore, John’s college professor. John showed up in Tom’s general chemistry course as a freshman at Birmingham Southern College in the early 80s.
+Tyler: Yeah.
 
-Tom: Walk in to a class of 85 to 95 students and look around, and boy, what’s that kid doing here?
+B: I mean, I, I disagree with some of your decisions, but you also, you’ve had a very different life experience than I’ve had.
 
-Birmingham Southern is a small, private, liberal arts college that’s been around since the 1800s. Tom says at the time when John was there the student body was made up largely of children of professionals: doctors and lawyers. They were preppy. John was not.
+Tyler: Yeah.
 
-Tom: Bushy red hair, unkempt, clothing from a different socioeconomic background. He was clearly different.
+B: Why, do you feel like a bad person sometimes?
 
-Tom says John didn’t make any friends at Birmingham Southern, and he didn’t live there. Every night he drove back to his parents’ house. Back to his childhood bedroom. Back to Bibb county. And Tom could tell that as much as John didn’t fit in at college, he didn’t fit in back home either. Tom got the sense that John had been picked on a lot over the years, growing up.
+Tyler: Naw, I just, it’s just, I just want to know what people think of me because I mean, hell I’d do anything for anybody. I’d help somebody goddamn, anyway I could. And I ain’t out to rob nobody or steal from nobody or nothing like that. I don’t, people make me out to be this, they, they treat me like Rodney is what it is. That’s the way it’s been my whole life, basically.
 
-Tom: He would do things, uh, as a college student to bring ridicule on himself. I want to say he would wear a red wig, or a green wig to class. 
+To Tyler, Rodney, his dad, that’s a criminal. And that’s how Tyler measures if he’s being a good person. Is he acting like Rodney. 
 
-Sure enough, Tom says, the other kids would laugh at him. And that was the point.
-
-Tom: I took it to be out of, this history that, I’m gonna be made fun of. And I can’t stand being made fun of just by being who I am. So I’ll do some things that enable me to understand why people are making fun of me, and it’s not just me being me. It’s pretty tragic. I saw that in him, and that’s part of why I reached out to him.
-
-John B. McLemore’s education is the source of some gossip in Woodstock. I have heard that he held multiple degrees: in chemistry, in biology. I have heard that he quit school because he was smarter than the professors. I have heard that he had to leave after blowing up a laboratory. The reality was less dramatic.
-
-Tom: He was bad at school.
-
-John was a college dropout. He left Birmingham Southern after three years. According to Tom, if John was studying a topic he was interested in, he would learn it exhaustively. Tom spent many afternoons watching John scribble on the blackboard in his office, obscure calculations and theories that were beyond even Tom’s comprehension. But when it came to stuff the professors wanted him to focus on, John was almost allergic to it. Tom thinks John got a D or maybe a C in his chemistry class. But John spent hours in the lab on his own, outside of class, figuring out techniques he could use in his clock restorations. Tom risked getting in trouble and let John access the lab when he wanted. Remember this?
-
-(sound of pouring)
-
-J: (whispering) There you go, there you go,
-
-When John gold-plated a dime for me in his workshop one afternoon?
-
-J: I may be dead and gone one day but you’ll have a souvenir from Shittown, Alabama.
-
-Tyler: A golden penny.
-
-J: A gold dime! 
-
-Tyler: Oh!
-
-J: A motherfuckin gold-plated dime! Shit. 
-
-I do still have the dime, by the way. That electroplating process, John worked it out as a student at Birmingham Southern as a way to gild clock pieces that doesn’t require burning dangerous amounts of mercury. It uses potassium cyanide instead.
-
-Sometimes in college when John came into Tom’s office in the afternoon for one of their blackboard sessions, Tom says John would seem depressed, to the point where Tom thought, he might be trying to say goodbye for good. Tom says he recommended John to a school counselor, and John saw her for a bit, even went on medication, but according to Tom, John didn’t like the way the medicine altered his personality. And he chose not to seek any more treatment. 
-
-Tom figured out that if he asked John to tell him about a clock he was working on, or some other topic he was studying, he could get John excited and redirect his attitude so that by the end of the session he would seem lifted out of his despair. Though this could take hours. Tom says he can vividly remember sitting in his office with John on a fall day, glancing at the sun while it set outside his window, watching the sky turn colors over campus as he thought about his wife waiting for him at home, but looking back at John and thinking,
-
-Tom: That I’m not sure John’s ready to go yet. 
-
-Then listening to John go on, as outside the sky turned dark.
+Tyler: I mean yeah, I have a temper. But I don’t beat on my kids or my wife, or my mama, or my sister. He does. I have made some mistakes for damn sure. But damn. I wish I had a little bit better guidance. 
 
 ---
 
@@ -517,22 +441,74 @@ J: Doesn’t seem like a very good track record for me, is it?
 
 ## Part 6
 
-It’s not long before I realize, follow any finger that is being pointed in the aftermath of John’s suicide and there will be another set of fingers on the other end, not only pointing right back, but in a bunch of other directions too. Everyone is pointing at everyone. One afternoon at my Best Western along the highway I’m walking to the elevator to go to my room when who should pop out of the stairwell but John’s cousin, Rita. By the time it registers in my brain that it’s her, we’ve already moved past each other and it’s too late and awkward to turn back and say something. This is weeks after I’d met Rita at probate court and she declined to do an interview, a whole separate trip. I had no idea she’d be in town, and now I’m afraid she might think I’m stalking her. So I ask the front desk which room she and her husband are in, four rooms down from mine, and write her a note which I slip under her door, explaining that I didn’t know she would be here, but since we both are, would she be open to meeting with me? And by the way, sorry for creepily leaving a note under your door.
+After John died, I found Michael Fuller in New York City, called him to set up a time to visit. And what I walked into is this bleak scene.
 
-The next afternoon we all sit around a table in the hotel common area. It’s Rita and two other women who introduce themselves as cousins of John’s, as well as Rita’s husband Charley. They don’t allow me to record. They are livid with Tyler. They are saying he’s the person who’s getting away with something, taking all sorts of stuff from John’s house that they say is not his. The buses and trailer, but much more too. They call him a con man. 
+Little girl: So yeah, I wanted to take a selfie, but nobody had space on their phone. (laughing) 
 
-They show me Google Maps satellite images of John’s yard with the buses and trailer in them, dated from 2010. Which means that they were in his yard at least three years before the dates that are on Tyler’s bills of sale, which are dated 2013. This is proof, they say, that Tyler’s documents are bogus. And I have to say it is suspicious, though Tyler’s not the only target of their suspicion. There’s Faye Gambell, the town clerk. Rita asks me if I’ve spoken to her. I tell her yes. That’s interesting she says, kind of to herself. She says she didn’t talk to you. Rita and Charley say Faye hasn’t passed along any instructions to them from John. They’ve heard she has a list of people to contact, but she hasn’t given them that either. 
+Michael Fuller does live in an apartment in New York, and he may be paying $1800 a month in rent, I don’t know. But I believe that would be under market for his lovely apartment in upper Manhattan. Which not only has a bathroom but three bedrooms. Michael’s a waiter. He likes his job. And he is shacked up with a woman, though she’s Brazilian, not Argentinian as John had said. And she does not happen to be a smuggler of high-powered South American marijuana, but rather a sweet Montessori teacher who is also Michael’s wife. They have a smart and precocious seven-year-old who speaks Portuguese and English, and cheers for Alabama football from afar. Michael tells me that he got to know Michael in his early 20s, when he was living down the road from him in Woodstock.
 
-Then there’s Boozer Downs, John’s lawyer. They tell me he was supposed to take a written statement from Faye, of what John told her the night he killed himself. But it’s been more than a month now, and curiously he still hasn’t done that. And then there’s me. Charlie clearly thinks this meeting is a terrible idea. He keeps getting up from the table and pacing, speaking to me sharply, saying I just want them to get in a, quote, “pissing match with Tyler.” At one point I ask, I thought harmlessly, where Mary Grace is living now, and Rita thinks on it for a moment, and then tells me, “I’d rather not say.” 
+Michael: I was over there a lot. Kind of just as just a safe place to be.
 
-I also ask about the text message Tyler showed me from John, which said Tyler could have anything he wanted in the house. Rita thinks Tyler fabricated it. She tells me it’s strange that it was sent from John’s computer and not a cell phone. I tell her, I don’t think it’s all that strange, and one of the other women cuts me off. “Of course you don’t.” “What do you mean by that?” I ask. “We know you’re like, friends with him,” She says.
+B: You thought of John’s as a safe place to be?
 
-On and on the accusations fly. It’s head-spinning. One day Tyler suggests to me that Boozer Downs, John’s attorney, might be in cahoots with the cousins, and that he might had suppressed John’s will so that they could split the assets. Meanwhile Boozer sends me an email asking if he can retract the interview he did with me because the cousins suspect him of being in cahoots with Tyler. “It got ugly in hearing,” he writes. “I am concerned that I should not have spoken to you on the recording.” Boozer says he did not hide John’s will because there was no will to hide. 
+Michael: Yeah.
 
-I also get an email from one of John’s friends, who I met in the restaurant. He’s certain there must have been a reason he wasn’t contacted about John’s death. He includes the words, “Maybe I knew too much.” Then I call back the first guy I met with, John’s fellow horologist Allen Bearden, and tell him I’ve done what he suggested, contacted the other friends on the top of John’s list, and indeed none of them was called in time for the funeral, and a few not at all. 
+Michael uses a version of that word several times to describe John’s. A safe place. A safety harbor. A place of safetyness. He was partying a lot then, he says, over in Birmingham, dancing as a scantily-clad cowboy in a traveling male revue, doing a lot of drugs, drinking. And John’s was somewhere he could go to sober up, or escape the scene for a while, and he always felt welcome there because John would be eager for the company and would usually be up in the middle of the night after Michael was done clubbing, working on clocks. Michael says once he even hid out at John’s for days from the police, when he had a warrant out for skipping a court appearance. 
 
-Allen: Now don’t you find that very strange, Brian?
+Meeting Michael I realize John couldn’t have been more wrong when he said his project had failed. Michael says without John as a refuge, a voice telling him to slow it down, to drink less, he might have ended up dead some night, from drunk driving, or in jail more than he did already. And it was John’s place that Michael went to when he was about to hit the bottom of his addiction. From there he headed back to his family and on to rehab.
 
-And then Allen clarifies his theory for me. He thinks all the weirdness surrounding John’s death, the fact that he and other people on John’s list weren’t contacted, is because someone has taken John’s gold. He is not exactly sure who, but what he suspects is that there is potentially a large conspiracy taking place within the local Woodstock town government and police, to cover it up.
+B: So you really think John had that much influence?
 
-Allen: If the gold was there I think, you know, somebody came and got that gold, you know? I mean, and probably, probably stepped over John’s body and took care of that before they even did John. Now who did that, I don’t know. But I think it’s somebody to do, with inside that city hall. The whole thing, it’s just, it’s very suspicious. (laughs ruefully) Very very very suspicious. Somebody has that gold.
+Michael: Oh yeah. That drinking got bad. And he was a good person to be there, you know for me at that time. He helped a lot. 
+
+B: It’s interesting. Like one of the reasons I wanted to come talk to you, are you familiar with the Goodsons? Does that name ring a bell at all?
+
+Michael: No. The Goodsons? No.
+
+I explain to Michael the context in which John had told me about him. How John mentioned him because we had been talking about this other guy, Tyler Goodson, who John had also recently been trying to shepherd through a rough period. And while I’m telling Michael about this, about the things John was doing for Tyler, he interrupts.
+
+Michael: That sounds like John, yeah. Caring, helping and that’s John.
+
+B: You’re smiling, like, with recognition.
+
+Michael: Yeah. 
+
+I ask Michael if it sounds, from what I’ve described, like Tyler is a later iteration of him. And he says it’s weird, but yeah, that does seem about right. John would let him stay at his house as long as he wanted, Michael says. Then he says, and that’s how he was with Tyler I guess. A thought seems to be occurring to him, about John’s suicide. 
+
+Michael: And something probably happened with Tyler. I don’t know. Maybe, I don’t know if… I think John was gay. Uh, which has nothing to do, doesn’t bother me at all, but…
+
+B: What do you think, do you think something happened with Tyler? 
+
+Michael: Like, he could have stopped coming around, he could have found a girlfriend, you know. Something like that. Is that what happened? 
+
+B: Yeah. Like right before the end.
+
+Not long before John killed himself, Tyler had started getting serious with his current girlfriend, Cammy, and they had recently moved in together. And when Michael said that Tyler could have stopped coming around, all I could think of is the weekend leading up to John committing suicide, the weekend of Father’s Day, when Tyler had been avoiding John and not speaking to him because John had made an insulting comment about his daughter on the swing set. Michael says this is something he’d always sensed about John. All those years ago.
+
+Michael: He kind of wanted you by hisself.
+
+He didn’t want to share you, especially not with a woman.
+
+Michael: I’m just saying, when I took a girl over there, you could tell he would, let them go, would you stay.
+
+B: How could you tell?
+
+Michael: You could just see it. You can tell. It was always with girls, it was, they’re nasty. He was never really talking nice about women.
+
+This is true. John could be scathing about lots of people so when he was alive this didn’t necessarily jump out at me, but in retrospect I have noticed that John could be particularly mean about women. He often used the word whore, as well as some more vulgar and inventive language to talk about women, and it sometimes seemed like he reserved a bit of extra vitriol just for them. On the other hand, John also expressed interest in feminism, bemoaned the fact that women in his area were more educated than men but didn’t seem to get the same opportunities, talked about reading Betty Friedan and Gloria Steinem, and was a fan of Audrey Lorde. And he was enraged by sexual abuse. So as usual with John, it was complicated. But since he died, quite a few people have told me, like Michael, that he was a woman-hater.
+
+Michael has now formulated a theory in front of me, a speculation to be sure, but one that he’s compelled by nonetheless. That Tyler, retreating from John that weekend, and then the night he killed himself, Tyler choosing to stay home with his girlfriend and kids, rather than heeding John’s pleas and going back to his place, Michael thinks that’s what led to John’s suicide.
+
+Michael: I’m just thinking that that’s what pushed him over the edge. He’s afraid he’s fixing to lose Tyler.
+
+I ask Michael something I’ve wondered often about John: if he ever knew him to be in a relationship. I have no idea, Michael says. I don’t think so. I know not with a woman. And I have no idea about a man, but he never mentioned it to me.
+
+B: Do you think John’s relationship with you, and then now Tyler having heard about it, like was the closest thing he had to a romantic relationship?
+
+Michael: I would think so. Yeah. Yeah. I would think so. 
+
+B: Is that sad or not sad?
+
+Michael: It’s sad. Because we’re both straight. 
+
+It is sad. But as I’d learn, Michael and Tyler being the closest thing John had to a romantic relationship, that’s also not true. 
