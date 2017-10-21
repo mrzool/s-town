@@ -104,7 +104,7 @@ J: And I decided, you know what, I need to contact him again. I need to get out 
 
 B: Cuz, what do you, what do you get depressed about?
 
-J: Sighs oh my god, I am 49 years old, or is it 48? Well I'm closer to 49. I should have, you know boy if you use this in the future you'll sure have to have the cuckoo bird bleeping, I should have got out of this godddamn fucking shit town in my 20s. I should have done something useful with my life. I love my home. I don't know why. You know I've lived here all my life. My mom's lived here all her life, my dad's lived here most of his life, and Grandpa Miller's lived here all his life. Places like that should be important. I'm looking out over a yard. We got a rose garden here that's 300 fucking feet long. I plant a hedge maze out here. It's the only one in the state. You can go to Google Maps and enter 33.202461,-87.13115
+J: Sighs oh my god, I am 49 years old, or is it 48? Well I'm closer to 49. I should have, you know boy if you use this in the future you'll sure have to have the cuckoo bird bleeping, I should have got out of this goddamn fucking shit town in my 20s. I should have done something useful with my life. I love my home. I don't know why. You know I've lived here all my life. My mom's lived here all her life, my dad's lived here most of his life, and Grandpa Miller's lived here all his life. Places like that should be important. I'm looking out over a yard. We got a rose garden here that's 300 fucking feet long. I plant a hedge maze out here. It's the only one in the state. You can go to Google Maps and enter 33.202461,-87.13115
 
 B: Woah woah, slow down. Let me type this in as you're telling me.
 
@@ -114,7 +114,7 @@ B: Tell me the numbers again?
 
 J: 33.202465,-87.1…
 
-B: I'm gonna hide a couple of coordinates here, for John's privacy. I type them into google maps. 
+B: I'm gonna hide a couple of coordinates here, for John's privacy. I type them into Google Maps. 
 
 J: That should be close, to within a few feet. 
 
@@ -181,9 +181,7 @@ B: So eventually I decide I'll come check it out.
 
 J: I was just dying for them to search this house without a warrant. I think they knew it.
 
-J: That's right after this.
-
-[*advertising*]
+That's right after this.
 
 John says hi hometown is filled with "proleptic decay and decrepitude." I'm not ashamed to say I had to look up the word proleptic. It means "using a word or phrase in anticipation of it becoming true." When I go to Alabama I don't want to cause any trouble, proleptically speaking, so John and I discuss a plan. After all what he's alleging, about the murder, that Kabram Burt has beaten someone to death, feels comfortable enough to make small talk about it out in the open, and a bunch of people know but no one has done anything, it's pretty scary. A reporter showing up from New York, asking questions, who knows how people might react.
 
@@ -214,6 +212,7 @@ Music
 B: That's John's road.
 
 On a windy afternoon in October 2014, I'm driving through Woodstock, Alabama, about 40 minutes southwest of Birmingham. Headed to meet John for the first time. To get to his house, rather than use his address he's suggested I navigate by latitude and longitude. And even then, I miss his place the first time past. It's just thick woods all around. From the road, I have no idea there's a house back there. But when I come back by, I notice there's an opening in the trees and a dirt driveway cut through the forest. It takes me deep into the woods, trees arching over it, until finally I reach a clearing with an old wooden house with three chimneys that looks like it hasn't changed since the Civil war. The whole place feels like it's of another time. And it is. Literally. John doesn't follow daylight savings so his property's on a time zone separate from the world around it.
+
 The front door of the house opens and a man comes bounding out of it. 
 
 B: John
@@ -222,7 +221,7 @@ J: You found it
 
 B: How are you? Nice to meet you.
 
-There's no ‘nice to meet you' back, no ‘how you doing?', no handshake. John just takes off around the side of the house with a pack of dogs following.
+There's no 'nice to meet you' back, no 'how you doing?', no handshake. John just takes off around the side of the house with a pack of dogs following.
 
 J: See if we can see Mexican petunias blooming. Come on Pipsqueak!
 
@@ -381,7 +380,7 @@ There's William Faulkner's short story, A Rose for Emily. Narrated by the gossip
 And then there's The Renegade by Shirley Jackson, about a woman who recently moved from the city to a small country town, whose family dog, Lady, is accused one morning of killing a neighbor's chickens. The woman listens in growing dread throughout the day as townsperson after townsperson laughs at the torture and death that will befall Lady as a result. Including, finally, the woman's own children, who describe to Lady's face in gleeful detail how they will use a spiked collar to chop off her head.
 I notice a unifying theme to all these stories: a creeping sense of foreboding. In these places that are allegedly home to polite society. An undercurrent of depravity.
 
-Morning comes. No word from Jake. In the meantime I try to come up with some other ideas. The obvious one in a situation like this would be to contact the victim‘s family. But at this point I still don't know if anyone's actually died. And so that's an awkward phone call to make. I can't get local hospital records. I try, but they're not public. Ditto with death records in Alabama, also not public. Again, I found no obit or news story about any of this in the papers. 
+Morning comes. No word from Jake. In the meantime I try to come up with some other ideas. The obvious one in a situation like this would be to contact the victim's family. But at this point I still don't know if anyone's actually died. And so that's an awkward phone call to make. I can't get local hospital records. I try, but they're not public. Ditto with death records in Alabama, also not public. Again, I found no obit or news story about any of this in the papers. 
 I was able to find two Dylan Nichols in Bibb county. Both were the right age, early 20s. One spelled his first name Dylan. The other spelled it Dillon. It looked like Dylan had played football at Bibb county high school a few years earlier, but other than that he had basically no footprint online, which is strange for someone his age. Like maybe that means you're dead?
 Dillon on the other hand appeared to be alive and well and actively maintaining his Facebook page. Not only that, but he'd gone to Kabram Burt's high school and was Facebook friends with him. Which made both John and me wonder if somehow the rumor got messed up, and maybe Dillon wasn't the dead guy. Maybe he was the friend with Kabram who'd got his throat cut and kept quiet about the whole thing. So I held off on contacting him. 
 So too afraid to talk to the cops, too afraid to talk to the Burts or the Nicholses, I lay out another idea to John. My thought is, we believe the murder happened sometime in the summer of 2012. If we can somehow narrow the time period to just a couple of weeks, maybe, we can go to the public library and look through the archive of Bibb county's local newspaper, The Centerville Press. The old issues aren't online so maybe there's an obituary or some other clue in there that I haven't been able to see.
@@ -492,7 +491,7 @@ Untangling wires, filling up beakers, like a drunken mad scientist.
 
 J: Whoo, do not breathe any of that. If you smell anything that smells like almonds, you need to get the fuck away.
 
-I'd say it's about this point that I ask myself, ‘Is John fucking with me?' Is he just a bored guy who contacted me on a lark and never expected me to actually follow through? Is this murder not real and he knows it? It's not only the fact that he is right now pouring potassium cyanide into a bucket in front of me, that makes me wonder this.
+I'd say it's about this point that I ask myself, 'Is John fucking with me?' Is he just a bored guy who contacted me on a lark and never expected me to actually follow through? Is this murder not real and he knows it? It's not only the fact that he is right now pouring potassium cyanide into a bucket in front of me, that makes me wonder this.
 
 J: There you go, there you go, oh shit, oh shit, oh there…
 

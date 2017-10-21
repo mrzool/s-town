@@ -50,7 +50,7 @@ J: He thinks he's a top dog! He runs the Little Caesar's in Buttfucksville, Alab
 
 Like, I am over this. But then John busts out this lovely word.
 
-J: He's probably a fag too, they always overcompensate. You know I‘ve been on both sides of the fence so I know the psychology of heterosexual and homosexual. That's probably the type that likes to overcompensate. They call themselves tops, you know they shout down the bottom, that's usually how that type of relationship works.
+J: He's probably a fag too, they always overcompensate. You know I've been on both sides of the fence so I know the psychology of heterosexual and homosexual. That's probably the type that likes to overcompensate. They call themselves tops, you know they shout down the bottom, that's usually how that type of relationship works.
 
 John talking like this, it did make me wonder.
 
@@ -68,7 +68,7 @@ I left my visit with that man, more than a year after John killed himself, feeli
 
 (Canaan Smith's Love you Like That: Slow as the Mississippi, strong as a fifth of whiskey, steady as a Tom Petty track, girl, I wanna love, wanna love you like that, deeper than a sunset sky, sweeter than muscadine wine, all night till the sun comes back, I wanna love, wanna love, wanna love you like that…)
 
-Did John ever have love in his life? Not ‘I really feel something for this kid Tyler' love, but Mississippi river love, fifth of whiskey love, muscadine wine Tom Petty track all night till the sun come back love? Or even a quieter, steadier, maybe even longer love? Did John ever have a relationship resembling any of that? Or did he spend the entirety of a lifetime without it?
+Did John ever have love in his life? Not 'I really feel something for this kid Tyler' love, but Mississippi river love, fifth of whiskey love, muscadine wine Tom Petty track all night till the sun come back love? Or even a quieter, steadier, maybe even longer love? Did John ever have a relationship resembling any of that? Or did he spend the entirety of a lifetime without it?
 
 One night in October 2015, as I was getting married actually, an email showed up in my inbox. No, I was not checking my email during my wedding. I noticed it the following week. "Hello sir," it began. "My name is Olen Long and I was a friend of John B. McLemore for 12 years. I recently learned of his death." Olen Long. I had never heard that name before, and it was not on John's contact list that he left behind after his suicide. Olen goes on to explain in his email that he had corresponded with a friend of John's who was on the list, whom I had spoken to, and that man told Olen about me, that I was doing a story about John. "Can you let me know when the segment will air?" Olen writes. "I would very much like to listen. Also I need to know the radio station number, AM or FM, thank you."
 
@@ -110,7 +110,7 @@ I begin to explain how John wrote to our radio show, how he and I spoke on the p
 
 Olen: That's very similar. When I met John we talked on the phone for 15 months very regularly before we ever met in person. I'm going to tell you, we met on a singles line, for men. The only good thing that came out of that singles line experience was a friendship with John. I met John on the line and I called him back at the number, and within just a few minutes I knew that I was talking to someone brilliant. I learned of John's death on the condolence website. I had not heard from John in probably a year. So I got curious and I…
 
-Olen doesn't tell me why he hadn't heard from John in a year. "Maybe I'm getting ahead of myself," he says. One day after all that time not speaking, Olen says he wondered about John and finally called him, but his phone number was disconnected which Olen thought was strange because John's family had had that phone line since the 1960s. So during some downtime at work he typed ‘John B. McLemore obituary' into Google and there it was. 
+Olen doesn't tell me why he hadn't heard from John in a year. "Maybe I'm getting ahead of myself," he says. One day after all that time not speaking, Olen says he wondered about John and finally called him, but his phone number was disconnected which Olen thought was strange because John's family had had that phone line since the 1960s. So during some downtime at work he typed 'John B. McLemore obituary' into Google and there it was. 
 
 Olen: And that's all I had to go on, because in all the years I knew John we had no friends in common. I had no one who knew him, so there was no one I could call.
 
@@ -180,7 +180,7 @@ Olen: I'm glad you asked that. No, I didn't get that impression. I didn't get th
 
 And Olen could relate to that because his experience with his professor was very similar. At 19, Olen admired the man, and was grateful to him, but the man was also cheating on his wife, and instead of teaching Olen how to have a healthy, open relationship, gave him lessons on how to cruise for sex in parks at nighttime, and in public bathrooms. 
 
-Another thing Olen and John could relate on, they both came out to their families and weren't accepted. Olen told his mother when he was 26, and after that, he says she never mentioned it again of her own volition. He's about to turn 60. He has never brought home a partner. Olen says when John tried to come out to his mother years ago, she simply left the room, and they never spoke of it again either. Although Olen says he never heard John use the word ‘gay' to describe himself, he always used ‘queer,' and told Olen he was quote, "Only 60 to 70 percent that way." John and Olen both kept their sexuality hidden for much of their lives. John talked to Olen and to me about how he had to be very careful about that where he lived. And it seems there were only a handful of people in his life he was out to. Olen says John had a refrain he'd use to describe his life in Bibb county. "You just learn to live without," he would say. Without sex, love, romance, support, companionship, the touch of another person, a partner. You learn to live without.
+Another thing Olen and John could relate on, they both came out to their families and weren't accepted. Olen told his mother when he was 26, and after that, he says she never mentioned it again of her own volition. He's about to turn 60. He has never brought home a partner. Olen says when John tried to come out to his mother years ago, she simply left the room, and they never spoke of it again either. Although Olen says he never heard John use the word 'gay' to describe himself, he always used 'queer,' and told Olen he was quote, "Only 60 to 70 percent that way." John and Olen both kept their sexuality hidden for much of their lives. John talked to Olen and to me about how he had to be very careful about that where he lived. And it seems there were only a handful of people in his life he was out to. Olen says John had a refrain he'd use to describe his life in Bibb county. "You just learn to live without," he would say. Without sex, love, romance, support, companionship, the touch of another person, a partner. You learn to live without.
 
 Olen: I'll tell you one of the similarities between me and John is that we can be celibate for long periods of time. And I'll just being honest with you. I don't mean to get into all this, but I don't mind telling you. It will soon be six years. 
 
@@ -264,7 +264,7 @@ Olen: I did. I ordered a copy and I had it sent to John. That was the second tim
 
 He read about Jack Twist and Ennis del Mar, their secret trysts after falling for each other on the mountain with their wives and children at home, and how despite Jack's pleas to Ennis, to just get a ranch with him and have a real relationship, never do that, because Ennis insists, "I'm stuck with what I got. Caught in my own loop. Can't get out of it." And who'd go on like that for years, Jack desperate to break out of the loop, and Ennis too afraid, until one day Ennis sends Jack a postcard and it comes back with a stamp, saying deceased.
 
-Olen: We were on the phone and he was crying about it, he had read it, and after that he always referred to it as ‘The Grief Manual.' He said, "I took down The Grief Manual and read it again tonight."
+Olen: We were on the phone and he was crying about it, he had read it, and after that he always referred to it as 'The Grief Manual.' He said, "I took down The Grief Manual and read it again tonight."
 
 And so this is what Olen and John's relationship eventually settled into. They were confidants and close friends, supporting each other through this experience they were both living, of being middle-aged and gay in Alabama, and alone. John giving once in a while hints that maybe he wanted the relationship to be something more.
 
@@ -302,7 +302,7 @@ What led to John and Olen's not speaking during the last couple of years of John
 
 Olen: I heard a lot about climate change.
 
-Also the economy. Olen was a good friend. He would listen to John and actually engage with him on these topics. John would refer to certain books a lot, and Olen actually went out and read several of them. ‘Going Dark' and ‘Walking Away from Empire' by Guy McPherson, and Al Gore's book ‘An Inconvenient Truth.' He told John, "I believe in climate change. I think it's an issue. I try to do my part. I switched over to energy saving lightbulbs. I don't know what else we can do, besides have everybody do their part."
+Also the economy. Olen was a good friend. He would listen to John and actually engage with him on these topics. John would refer to certain books a lot, and Olen actually went out and read several of them. 'Going Dark' and 'Walking Away from Empire' by Guy McPherson, and Al Gore's book 'An Inconvenient Truth.' He told John, "I believe in climate change. I think it's an issue. I try to do my part. I switched over to energy saving lightbulbs. I don't know what else we can do, besides have everybody do their part."
 
 Olen: Then there was mostly Shittown. That was mostly it.
 

@@ -38,7 +38,7 @@ Miss Hicks: I tell you, the whole system is bad.
 
 Miss Hicks' life has felt precarious for a long time now. Tyler's ordeal is only the most recent trouble to wedge itself into her days. Miss Hicks still cares for her son Jimmy, Tyler's uncle Jimmy, even though he's 58 years old, because he's severely incapacitated by the bullet lodged in his brain. She also supports her 45 year old daughter Maya, Tyler's mother, who lives with Miss Hicks too and who, despite being really smart and having a college degree, finds it hard to hold a job because of depression and other health problems. There was also an extended family member living with Miss Hicks for seven years, after he got out of prison for a sex offense. He just moved out, and no sooner did his room clear than in moved a granddaughter. Meanwhile someone's left a dog behind who's about to have a litter of puppies, and Tyler and his kids and pregnant girlfriend are living in a half-finished house Tyler's been building in Miss Hicks' yard.
 
-Miss Hicks: You find a solution for my, my my my conditions here I would appreciate it, any, any idea you have I, it'd be welcome. Kick ‘em out and shoot ‘em all, or do something. (laughs) Whoo! I don't know whether I'm coming or going. If I had a different, uh, disposition I would probably would go stark raving crazy. I'd just take my medicine and take my Bocelli, and if you hear me play Bocelli then you know I'm sad.
+Miss Hicks: You find a solution for my, my my my conditions here I would appreciate it, any, any idea you have I, it'd be welcome. Kick 'em out and shoot 'em all, or do something. (laughs) Whoo! I don't know whether I'm coming or going. If I had a different, uh, disposition I would probably would go stark raving crazy. I'd just take my medicine and take my Bocelli, and if you hear me play Bocelli then you know I'm sad.
 
 Andrea Bocelli. Miss Hicks is an opera lover.
 
@@ -106,7 +106,7 @@ Tyler's a thief, Rita tells me, whose trespassed repeatedly onto the property of
 
 Rita: We'll never know, but nobody will change my mind about it. 
 
-At one point, Charley starts making a ‘cut it' gesture across his neck.
+At one point, Charley starts making a 'cut it' gesture across his neck.
 
 B: Charles wants you to stop (laughs)
 

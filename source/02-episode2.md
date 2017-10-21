@@ -72,7 +72,7 @@ The shop is called Black Sheep Ink and I'll learn that the guys that hang out he
 
 There's this gentleman, whose name I never do catch, who tells me, quote, "I'm so fucking fat I don't care no more." And lifts up his shirt to show me the giant words he has tattooed on his stomach: Feed Me.
 
-FMG: Tell ‘em, tell ‘em, give ‘em a picture. I'm a 6 foot, 350 pound bearded man in a John Deere hat with ‘feed me' on my belly, just so y'all get a clear picture here.
+FMG: Tell 'em, tell 'em, give 'em a picture. I'm a 6 foot, 350 pound bearded man in a John Deere hat with 'feed me' on my belly, just so y'all get a clear picture here.
 
 There's a guy who's been wearing the same trucker hat for seven years.
 
@@ -162,7 +162,7 @@ Joel: Fuck yeah he calls us failures, you know what I mean?
 
 B: Like jokingly, or …
 
-Joel: No. Everybody' s a failure. Like in his brain, everybody's a failure. For all I know you could be a failure. You know sometimes I wish he's kind of fail…
+Joel: No. Everybody's a failure. Like in his brain, everybody's a failure. For all I know you could be a failure. You know sometimes I wish he's kind of fail…
 
 These guys dish it out too. They tease John for his many peculiarities. Like how he'll devour whatever leftover food is around, no matter how old or rock hard it is. His inability to buy new shoes to alleviate his athlete's foot, which he's allegedly had for three years. His extemporaneous solving of math problems. His utter aversion to being in a room with more than two or three people at a time. His living with his mom his whole life. His being a loner.
 
@@ -196,7 +196,7 @@ They claim John has $400,000 in cash, a hundred some-odd thousand worth of tools
 
 Tyler: Gold that his granddaddy, his granddaddy's gold, his daddy's gold…
 
-Tyler's up on the counter of the bar, crouching. He has a brown briefcase he carries around with him. He calls it his minister's case. It has a sticker that says ‘minister' slapped on the outside, and it's filled with his tattoo machines and a gun and his welder's cap and some nipple jewelry and his Black Sheep Ink business cards, and also his minister's license which he got online because he wanted to found a non-denominational church where people of all backgrounds could come together and talk it out. This clubhouse is meant to be a version of that. He says it's his church. Tyler stares down at us from the corner of the bar, like he's about to divulge a secret. When it comes to John, he says, there's no telling…
+Tyler's up on the counter of the bar, crouching. He has a brown briefcase he carries around with him. He calls it his minister's case. It has a sticker that says 'minister' slapped on the outside, and it's filled with his tattoo machines and a gun and his welder's cap and some nipple jewelry and his Black Sheep Ink business cards, and also his minister's license which he got online because he wanted to found a non-denominational church where people of all backgrounds could come together and talk it out. This clubhouse is meant to be a version of that. He says it's his church. Tyler stares down at us from the corner of the bar, like he's about to divulge a secret. When it comes to John, he says, there's no telling…
 
 Tyler: What he's got, because there's a lot of shit that I'm sure I don't know about, because I been finding stuff out slowly over the years, and there's damn secret little dungeons and shit under his damn house man, I ain't playing. I've built gates for him. I've built gates for the dungeons.
 
@@ -218,7 +218,7 @@ Bubba: This is something you're completely against, you think fucking failures h
 
 Bubba and Tyler co-own Black Sheep Ink together. And Bubba started noticing they'd have a bill about to come due for the business, they'd be wondering how they were gonna pay it, and then conveniently John would come in and hand over $300 or $400 and ask for another tattoo on his chest. Bubba says people around here don't throw down money like that. But John would, just in the nick of time, and then schedule another appointment for soon after.
 
-Bubba: He might not have said, ‘I'm helping you out.' But when you sit down and pay me $2000, $3000 in a couple weeks span you've just helped me out. You know, you've just got all my bills caught up, you've just got everything back to where it needed to be. You know.
+Bubba: He might not have said, 'I'm helping you out.' But when you sit down and pay me $2000, $3000 in a couple weeks span you've just helped me out. You know, you've just got all my bills caught up, you've just got everything back to where it needed to be. You know.
 
 B: You think that's why he did it?
 
@@ -248,7 +248,7 @@ When John hires Tyler to chop down trees in his yard, or build iron gates in his
 
 Bubba: He loves Tyler. I mean, Tyler's his boy. I mean, that's his boy. Tyler's brother, he cares about Tyler's little brother Jake, you know. John can say anything he wants to, but he loves Tyler probably just about as much as you would your own son. Your own flesh and blood. And I ain't figured it out.
 
-We're standing in the backyard as we're talking, behind the tattoo shop. A train whistle starts to blow in the distance. Eventually someone comes out and tells me I might be interested to know that Kabram's sister, Kassian Burt, is here. Like, right inside, 15 feet away from me. ‘Why don't we just go ask her about the murder?' This town.
+We're standing in the backyard as we're talking, behind the tattoo shop. A train whistle starts to blow in the distance. Eventually someone comes out and tells me I might be interested to know that Kabram's sister, Kassian Burt, is here. Like, right inside, 15 feet away from me. 'Why don't we just go ask her about the murder?' This town.
 
 I go to the bar, leave six bucks for my beer, and careful to avoid Kabram's sister head out the secret door, not knowing what I eventually will know, months and months from now. That Kabram Burt didn't murder anybody. But also that before this is all over, someone will end up dead.
 
@@ -264,7 +264,7 @@ K: Nice to meet you bud.
 
 B: So I'm doing a radio story, I'm a reporter, I'm here from New York. Is there somewhere quiet we could sit?
 
-It's a year later and I'm pulling into K3 Lumber on a Friday morning, nervously asking if Kabram's around. I feel comfortable doing this only because I have finally determined that the incident John contacted me about, where Kabram allegedly got into a fight and beat a guy to death, although it did in fact go down almost exactly as John and Jake and Skylar and others told me, was wrong in one relatively important detail: the ‘to death' part. The guy Kabram beat up did not die. They just thought he did for a while. That's what I eventually gathered from talking to people more. Once I heard that I started contacting law enforcement to find out what did exactly happen.
+It's a year later and I'm pulling into K3 Lumber on a Friday morning, nervously asking if Kabram's around. I feel comfortable doing this only because I have finally determined that the incident John contacted me about, where Kabram allegedly got into a fight and beat a guy to death, although it did in fact go down almost exactly as John and Jake and Skylar and others told me, was wrong in one relatively important detail: the 'to death' part. The guy Kabram beat up did not die. They just thought he did for a while. That's what I eventually gathered from talking to people more. Once I heard that I started contacting law enforcement to find out what did exactly happen.
 
 It turns out the incident in question actually took place in adjacent Tuscaloosa county. A chief at the sheriff's department there read to me, from a detailed case file, showing that the police had investigated the fight thoroughly, that no one had been killed, and that they had closed the case not because they were paid off or anything, but because none of the guys involved wanted to press charges.
 
@@ -272,7 +272,7 @@ And so here I am at K3 Lumber to ask Kabram why he would go around bragging to p
 
 B: Kabram? Hey I'm Brian Reed. Nice to meet you.
 
-There's a particular philosophy I've encountered down here, and will continue to encounter. That is, the ‘fuck it' philosophy. A belief that there's no sense in worrying or thinking too much about any given decision because life is gonna be difficult and unfair regardless of what you do. It's more than a belief really. It's a way of moving moment to moment though the world. And from the get go Kabram seems to be a subscriber. I show up with a microphone and ask if I can talk to him on the record about a matter I've yet to name, and he's immediately game. Fuck it. And we walk over behind some stacks of lumber to be alone.
+There's a particular philosophy I've encountered down here, and will continue to encounter. That is, the 'fuck it' philosophy. A belief that there's no sense in worrying or thinking too much about any given decision because life is gonna be difficult and unfair regardless of what you do. It's more than a belief really. It's a way of moving moment to moment though the world. And from the get go Kabram seems to be a subscriber. I show up with a microphone and ask if I can talk to him on the record about a matter I've yet to name, and he's immediately game. Fuck it. And we walk over behind some stacks of lumber to be alone.
 
 K: What you wanna talk about bud?
 
