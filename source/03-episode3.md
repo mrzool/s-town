@@ -1,6 +1,6 @@
 # Chapter 3
 
-> "Tedious and brief."
+> *"Tedious and brief."*
 
 ## Part 1
 

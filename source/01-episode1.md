@@ -1,6 +1,6 @@
 # Chapter 1
 
-> "If you keep your mouth shut, you'll be surprised what you can learn."
+> *"If you keep your mouth shut, you'll be surprised what you can learn."*
 
 ## Part 1
 

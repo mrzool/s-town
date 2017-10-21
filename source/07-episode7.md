@@ -1,6 +1,6 @@
 # Chapter 7
 
-> "You're beginning to figure it out now, aren't you?"
+> *"You're beginning to figure it out now, aren't you?"*
 
 ## Part 1
 

@@ -1,6 +1,6 @@
 # Chapter 4
 
-> "If anybody could find it, it would be me."
+> *"If anybody could find it, it would be me."*
 
 ## Part 1
 

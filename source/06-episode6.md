@@ -1,6 +1,6 @@
 # Chapter 6
 
-> "Since everyone around here thinks I'm a queer anyway."
+> *"Since everyone around here thinks I'm a queer anyway."*
 
 ## Part 1
 

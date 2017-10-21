@@ -1,6 +1,6 @@
 # Chapter 2
 
-> "Has anybody called you?"
+> *"Has anybody called you?"*
 
 ## Part 1
 
