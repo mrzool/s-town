@@ -289,7 +289,7 @@ B: I'm like, I have chills.
 
 J: Chills? (laughing) I have chills looking at all the brown bushes over here on this side.
 
-B: I don't even see the brown, there's all these green.. this is incredible.
+B: I don't even see the brown, there's all these green... this is incredible.
 
 We enter the maze and John rearranges the position of three gates inside.
 
