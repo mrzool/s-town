@@ -536,12 +536,15 @@ J: A motherfuckin gold-plated dime! (burps) Shit.
 ## Part 6
 
 For thousands and thousands of years we did not have clocks or calendars or any method for telling time in the way we think of telling time now. And time was happening nonetheless. As humans we must have sensed it. Maybe we heard it: the rhythm of it as we sharpened a tool. It's amazing if you think about it. The sheer variety of methods we've concocted over the centuries to keep track of time. We pour sand through a glass. We swing pendulums back and forth. We count the cycles of radiation coming off an atom. We count Mississippis. 
+
 When John was a teenager, he became fascinated with what was possibly the very first formalized way humans came up with to keep track of time: watching the sun and the stars and the phases of the moon. He built his own version of something called an astrolabe, which he's showing me.
 
 J: Where we're standing is the zenith, that's this point over here.
 
 The astrolabe looks kind of like a clock crossed with a compass. It's a flat dial with a map of the night sky laid over it, and a pointer, or I guess a sight, attached on top of that. You pick a star in the sky and aim the sight at it, twist the skymap until it aligns with the sight in a certain way, and then the dial shows you your direction as well as the month, day, and time.
+
 It's a beautiful, complex device, and as a kid John longed to figure it out, to put himself inside the brains of the people who puzzled through the earliest versions. The Greek astronomer Hipparchus, who devised the mathematics behind it, or the 10th century Islamic scholars who refined the invention to help them time their daily prayers.
+
 John wanted to go through what they had to go through to create an astrolabe. Which is why he made his own, designed specifically for the coordinates of this house. It hangs on the wall of his mother's bedroom. That's what he's showing me, his astrolabe, when Skylar Goodson happens to walk in the front door. 
 
 J: Oh, Skylar's here to come collect her money. Here's Jake's wife… oh you brought spaghetti. Is Jake bringing his ass over here? 
@@ -565,6 +568,7 @@ B: He told you that too?
 S: Yes!
 
 She says she was with Jake when it happened. 
+
 The Little Caesar's, seeing Kabram for the first time after he'd vanished for a while, Kabram telling them he'd claimed self-defense and gotten off. According to Skylar it all went down just how John said it did.
 
 S: Well he pretty much, in those words, pretty much said that he had murdered the guy and just - 
@@ -583,8 +587,7 @@ B: What did you guys say? I mean what, were you like -
 
 S: Just stood there. Just stared at him. It didn't sound like it was something that you should be having come up, casual conversation about it. It seems like he should have still been in hiding.
 
-Skylar says she'd actually heard about the murder, before talking to Kabram. That it was kind of an open secret. That's the thing that freaks her out most about this, even a couple of years after it happened. The fact that so many people know and still have done nothing. The complicity.
-I mentioned my trip to the library to her, my hope that there'd be some record of this in the newspaper. But she has no illusions about that. 
+Skylar says she'd actually heard about the murder, before talking to Kabram. That it was kind of an open secret. That's the thing that freaks her out most about this, even a couple of years after it happened. The fact that so many people know and still have done nothing. The complicity. I mentioned my trip to the library to her, my hope that there'd be some record of this in the newspaper. But she has no illusions about that. 
 
 S: Most of it's probably hidden, it's not even in there. 
 

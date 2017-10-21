@@ -150,7 +150,7 @@ Olen: I mean I went over there dressed like this one time, and he said, "I only 
 
 I mean, Olen was dressed, in that he was wearing jeans and a shirt.
 
-Olen: The difference is that mine were clean and un-tattered. He was wearing a t-shirt with holes in it, paint stains all over it, and the uh, trousers he had on, very much the same. And then of course I was down there one evening in his bedroom and, and he had a, he had a pile of handkerchiefs there on the floor, and I suspected they were used handkerchiefs, and surely enough he had to blow his nose and he went over there and he picked up a used, wadded up handkerchief and blew it and then threw it back down there in the pile. And I didn't say anything, but I thought, "I don't do that."
+Olen: The difference is that mine were clean and un-tattered. He was wearing a T-shirt with holes in it, paint stains all over it, and the uh, trousers he had on, very much the same. And then of course I was down there one evening in his bedroom and, and he had a, he had a pile of handkerchiefs there on the floor, and I suspected they were used handkerchiefs, and surely enough he had to blow his nose and he went over there and he picked up a used, wadded up handkerchief and blew it and then threw it back down there in the pile. And I didn't say anything, but I thought, "I don't do that."
 
 So, that gave Olen pause. But still, night after night he and John found themselves talking for hours on the phone. They were getting close.
 
@@ -335,6 +335,3 @@ B: And yet instead of doing anything…
 Olen: I kept those feelings to myself. I think now, if I could go back, if I could get in a time machine, and go back there and relive that moment I would at least speak up and tell him what I was thinking. I'd probably look over there and say, "John I don't know how you're gonna feel about this, but I really wanna kiss you right now. There. I've put it out there. That's what I want."
 
 F-150 pickup truck love. Denim hugging on your thighs love. Azalea love. Doctor's parking lot love. Kissing on your belly and all around your red hair love. Too bad that didn't actually happen. Because that's something you could write a country song about.
-
----
-

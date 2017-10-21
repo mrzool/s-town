@@ -18,7 +18,7 @@ B: Nine felony charges?
 
 Miss Hicks: Yes. He's saying, Cordelia cook me some supper cuz I might not get nothing but jail food for the next couple of months. 
 
-Tyler's grandmother, Miss Hicks, says she doesn't know all the details of the charges against her grandson. They're not publically filed yet. But Tyler's mom, Maya, heard from a family friend who works in local law enforcement that a grand jury had indicted Tyler on a felony count for theft of the 48-foot trailer he took from John's property, along with the buses filled with lumber and antiques. Tyler's had misdemeanors before, but never a felony. And to exacerbate things, it turns out about a month ago, around Thanksgiving, in an incident unrelated to John, Tyler was also arrested for armed burglary. He went to pick up his youngest daughter, who lives with him, from her mother's place and according to Tyler, her mom wouldn't let him in, and he was concerned for his daughter's safety so he busted down the door and pulled his daughter out, and the mom called the cops who charged him with armed burglary because he had a gun, which he says was in his car but which the mom said he had on him. Tyler has a court date tomorrow for the burglary charge, and his mother and grandmother are worried that the judge is gonna toss him in jail when he sees the new theft count for the trailer from John's. This all couldn't be happening at a worse time, because Tyler recently found out he has a fourth baby on the way, with his current girlfriend.
+Tyler's grandmother, Miss Hicks, says she doesn't know all the details of the charges against her grandson. They're not publicly filed yet. But Tyler's mom, Maya, heard from a family friend who works in local law enforcement that a grand jury had indicted Tyler on a felony count for theft of the 48-foot trailer he took from John's property, along with the buses filled with lumber and antiques. Tyler's had misdemeanors before, but never a felony. And to exacerbate things, it turns out about a month ago, around Thanksgiving, in an incident unrelated to John, Tyler was also arrested for armed burglary. He went to pick up his youngest daughter, who lives with him, from her mother's place and according to Tyler, her mom wouldn't let him in, and he was concerned for his daughter's safety so he busted down the door and pulled his daughter out, and the mom called the cops who charged him with armed burglary because he had a gun, which he says was in his car but which the mom said he had on him. Tyler has a court date tomorrow for the burglary charge, and his mother and grandmother are worried that the judge is gonna toss him in jail when he sees the new theft count for the trailer from John's. This all couldn't be happening at a worse time, because Tyler recently found out he has a fourth baby on the way, with his current girlfriend.
 
 B: Oh man. What a mess. 
 
@@ -56,7 +56,7 @@ B: So you've been feeling sad?
 
 Miss Hicks: I've been feeling sad, well and upset about things that I can't alter. I mean, misery loves company so Maya and I be good and sad together, and you can see tears rattling in our eyes when we hear of a sad story, I said uh oh Maya don't start your crying, I says you're gonna make me cry now. (laughs sadly) But when she talks about Tyler she always cries here. She says she don't have no tears left. I'm just like that middle man you know cuz I feel sorry, I mean I love Tyler more than anything, but the idiot just won't do right you know. (laughs) He's doing some dumb things. I can't make up my mind whether to scold him or love him or something.
 
-(Donna e Mobile plays)
+('La Donna è Mobile' plays)
 
 Whether to scold Tyler Goodson, or whether to love him. A conundrum that has driven its fair share of people, mother, grandmother, girlfriends, buddies, John, a radio reporter from New York, driven all of us at one time or another, to salve our exasperation with our own personal versions of Bocelli.
 
@@ -70,7 +70,7 @@ Let's back up. A month and a half before my Sunday night phone call with Tyler's
 
 John's cousin Rita and her husband Charley are here from Florida. A special prosecutor was called in from out of town and Tyler's lawyer came in from Bessamer. The only person who wasn't present for Tyler's hearing was Tyler, because he got a temporary job at a factory in Georgia and says he didn't want to lose a day's work to come back to Woodstock, so he sent his lawyer in his place. Rita and Charley, John's cousins, drove 10 hours from Florida, all to watch as the judge slapped Tyler with a new offense, failure to appear, and in the course of two and a half minutes, adjourned court. 
 
-The last time I saw Rita was our meeting after I discovered that we were staying at the same hotel and left a note under her door, though she didn't want to talk on tape. But now, as we're lingering in the town hall parking lot with the sun setting, we start chatting, and she says it's ok if I record. She seems frustrated with Tyler.
+The last time I saw Rita was our meeting after I discovered that we were staying at the same hotel and left a note under her door, though she didn't want to talk on tape. But now, as we're lingering in the town hall parking lot with the sun setting, we start chatting, and she says it's OK if I record. She seems frustrated with Tyler.
 
 Rita: I'm upset, because um, of the whole situation with him taking advantage of an 89-year-old that can't take care of herself.
 
@@ -254,7 +254,7 @@ Which wasn't the case. They barely even knew what was going on, Rita says. There
 
 Rita: And the nurses were saying, "Who is this guy? What connection is he to her? Is he her adopted son?" He told him he was her adopted son! And so I go back in there and you know I said, "Mary Grace, now I'm here to see if, is there anything that I can do to you know, help you or whatever." And Tyler is like, "Well I'm gonna get, you know, I'm gonna get Mama home and, oh me and Mama sit out on the porch and we talk about old times, and Mama I'm gonna get you some new shoes, and Mama my kids are gonna pick you fresh flowers every day, and…" I walked out and I told Charley, I said, "Charley, if I hear him call her Mama one more time I'm gonna go ballistic."
 
-B: Before you move on, can I tell you, the way you're describing Tyler, at the hospital as putting on a show for you guys, that's how he describes you at the hospital, as putting on a show, (Rita laughs) saying that you guys were crying over Mary Grace, and were like all boo hoo hoo or so…
+B: Before you move on, can I tell you, the way you're describing Tyler, at the hospital as putting on a show for you guys, that's how he describes you at the hospital, as putting on a show, (Rita laughs) saying that you guys were crying over Mary Grace, and were like all boo-hoo-hoo or so…
 
 Rita: No! No! I went in and I did say Mary Grace I am so sorry, I'm not saying I wasn't crying, I probably did cry, I mean my god, I knew John Brooks. It wasn't like he was a stranger. He's family. But I wasn't (theatrically) "Oh Mary Grace! I'm so sorry!" You know.
 
@@ -268,7 +268,7 @@ Rita: Yes!
 
 B: Like was that, were you just really calling his bluff, or was like…
 
-Rita: No! No, I was serious. She said it was ok, she liked him, he liked her, I'm like, fine. And then the social worker called me at my motel and said, "We're not turning Mary Grace over to him."
+Rita: No! No, I was serious. She said it was OK, she liked him, he liked her, I'm like, fine. And then the social worker called me at my motel and said, "We're not turning Mary Grace over to him."
 
 Part of the reason was that Tyler isn't kin to Mary Grace, but Rita says in addition to that the hospital staff had doubts about what Tyler was claiming. 
 
@@ -348,7 +348,7 @@ B: OK.
 
 Tyler: Not on my part.
 
-Not on my part, he says. For a year, Tyler and I have talked regularly, on the phone and when I come to Alabama. He's told me all sorts of stories, some about John, but even more just about his life. About the abuse his father Rodney inflicted upon him and his family when he was a kid. Abuse Tyler's mother and grandmother have told me about too. Rodney, by the way, said to me that he was not abusive. He used a different word. He said he whooped his family. Tyler's told me about what it was like just as he was entering high school, to have Rodney get convicted for sexually abusing a child, to have to suddenly cram with his family into his grandmother's house and have everybody at school know what was going on. About what it's like to have your license suspended for failing to pay a fine one time, for a minor traffic offense, and then to keep getting pulled over again and again because you have no other way to get to work in rural Alabama so you're driving without the license, and the fines keep mounting, what John called fine slavery, and so much of the money you do manage to make you have to shovel right back over to the courts or lawyers. About what all that does to your worldview.
+Not on my part, he says. For a year, Tyler and I have talked regularly, on the phone and when I come to Alabama. He's told me all sorts of stories, some about John, but even more just about his life. About the abuse his father Rodney inflicted upon him and his family when he was a kid. Abuse Tyler's mother and grandmother have told me about too. Rodney, by the way, said to me that he was not abusive. He used a different word. He said he whooped his family. Tyler's told me about what it was like just as he was entering high school, to have Rodney get convicted for sexually abusing a child, to have to suddenly cram with his family into his grandmother's house and have everybody at school know what was going on. About what it's like to have your license suspended for failing to pay a fine one time, for a minor traffic offense, and then to keep getting pulled over again and again because you have no other way to get to work in rural Alabama so you're driving without the license, and the fines keep mounting, what John called fine slavery, and so much of the money you do manage to make you have to shovel right back over to the courts or lawyers. About what all that does to your world view.
 
 Tyler: I know I got some bad luck, I'll tell you that. Like I just expect the worst to happen everywhere I go and just hoping I can get surprised that it don't.
 
@@ -368,7 +368,7 @@ Yes, really. At first I thought maybe Tyler was just saying something ridiculous
 
 B: (shakily) You thought it would be OK to cut his fingers off?
 
-Tyler: Buddy, if he thought it was ok to come in here and steal my granddaddy's gun that is irreplaceable, then yeah. I was gonna fix a thief. I believe it would have took one finger and them guns would have been found, if one finger hadda went. It wouldn't have took two or three, I guarantee you. 
+Tyler: Buddy, if he thought it was OK to come in here and steal my granddaddy's gun that is irreplaceable, then yeah. I was gonna fix a thief. I believe it would have took one finger and them guns would have been found, if one finger hadda went. It wouldn't have took two or three, I guarantee you. 
 
 I kept questioning Tyler, trying to understand why he thought this was OK, but nothing he said did quite make me understand. And I realized it was probably gonna stay that way. Eventually as I'm saying goodbye, about to hang up the phone, Tyler asks me this.
 
@@ -408,7 +408,7 @@ And I would hear about it.
 
 J: See that's what he can't do. He can't keep his fuckin ass outta trouble. Am I expecting too much? You know he was raised by a fuckin child molester. Maybe I'm expecting too much. 
 
-And just like with Tyler's grandmother, talking about Tyler's tribulations could quickly get John riled up about tribulations the world over. Which I know we've all heard John deliver this kind of harangue before, but I share this only so you can see how riled up Tyler could make John. He really inspired some of John's most virtuosic work. Here, I'll save you all the windup about Tyler, and go straight to the money.
+And just like with Tyler's grandmother, talking about Tyler's tribulations could quickly get John riled up about tribulations the world over. Which I know we've all heard John deliver this kind of harangue before, but I share this only so you can see how riled up Tyler could make John. He really inspired some of John's most virtuosic [*sic*] work. Here, I'll save you all the windup about Tyler, and go straight to the money.
 
 (opera in background)
 
@@ -419,7 +419,7 @@ Still, John really stuck with Tyler, despite the irritations. He gave him more a
 
 B: Do you think your guys' relationship is more of a friendship, or more of a paternal relationship?
 
-J: What you wanted to say but you didn't come out and say it, is, is your guys' relationship more of a friendship or more of a usership? (laughs) Ha, that's what you wanted to say!
+J: What you wanted to say but you didn't come out and say it, is, is your guys' relationship more of a friendship or more of a "usership"? (laughs) Ha, that's what you wanted to say!
 
 B: No, it actually wasn't what I wanted to say, it's what you wanted to say apparently. 
 

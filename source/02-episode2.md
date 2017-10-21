@@ -30,7 +30,7 @@ Jake: Kabram.
 
 Kabram lives right nearby. Why not just get it from the horse's mouth?
 
-B: No. 
+B: No.
 
 Jake: Probably so
 
@@ -38,7 +38,7 @@ B: That makes no sense. I would stick a microphone in his face and he would tell
 
 Jake: Probably. He's, he's burnt up. He wouldn't know no better. He's probably just laugh about it with you.
 
-I told Jake no thanks, at least not now. I do not feel like I am armed with enough information to confront Kabram yet. Aside from seeming farfetched, the idea also just sounded potentially dangerous. For John, for Jake, and for me. 
+I told Jake no thanks, at least not now. I do not feel like I am armed with enough information to confront Kabram yet. Aside from seeming far-fetched, the idea also just sounded potentially dangerous. For John, for Jake, and for me. 
 
 But then the next night a bunch of other people proposed the exact same thing. 
 
@@ -84,7 +84,7 @@ Razor: (Ringing sound? Chewbacca sound?)
 
 People call him Razor. 
 
-R: Beep beep, and it was backing up, I was parked up on the side of the road up there. I looked down there I says, son of a bitch, he, Willard, drinks up. Yeah Walter Odom come by man, seen him layin in the yard and thought he'd died. Hell ambulance is already, they'd already called the ambulance man. The bastard is layin out there in the yard got an ounce of pot laying inside him, six beers, he was just shitfaced. (laughs) 
+R: Beep beep, and it was backing up, I was parked up on the side of the road up there. I looked down there I says, son of a bitch, he, Willard, drinks up. Yeah Walter Odom come by man, seen him layin' in the yard and thought he'd died. Hell ambulance is already, they'd already called the ambulance man. The bastard is layin' out there in the yard got an ounce of pot laying inside him, six beers, he was just shitfaced. (laughs) 
 
 I believe he's telling a story about his friend Willard who is impervious to death.
 
@@ -134,11 +134,11 @@ U1: Nobody.
 
 U3: Nobody else like that.
 
-U2: He been buggin the piss outta you?
+U2: He been buggin' the piss outta you?
 
 B: What's that?
 
-U2: Has he been buggin the piss outta you? 
+U2: Has he been buggin' the piss outta you? 
 
 B: I'm not there yet, but it's exhausting to hang out with him for a long day.
 
@@ -160,7 +160,7 @@ B: He calls you guys failures?
 
 Joel: Fuck yeah he calls us failures, you know what I mean?
 
-B: Like jokingly, or …
+B: Like jokingly, or…
 
 Joel: No. Everybody's a failure. Like in his brain, everybody's a failure. For all I know you could be a failure. You know sometimes I wish he's kind of fail…
 
@@ -238,7 +238,7 @@ Bubba: He's just watched them boys, man, he knows how his daddy was. I mean the 
 
 Tyler that is.
 
-Bubba: You know on the jobsite, working. Not going to school, working. Going to school two days, a work week, work five days a week, you know what I mean? So he just seen it and he knows it wasn't right, sees what, how Tyler's been programmed to be, the way he is by his raising and his upbringing, you know. And feels sorry for him, I guess. I don't know. He knows that he's smarter than he's letting on, I mean I don't know.
+Bubba: You know on the job site, working. Not going to school, working. Going to school two days, a work week, work five days a week, you know what I mean? So he just seen it and he knows it wasn't right, sees what, how Tyler's been programmed to be, the way he is by his raising and his upbringing, you know. And feels sorry for him, I guess. I don't know. He knows that he's smarter than he's letting on, I mean I don't know.
 
 B: That Tyler is?
 
@@ -400,9 +400,9 @@ J: I think you've done pretty goddamned good.
 
 B: Well thank you.
 
-J: I guess if I sound like I'm disinterested today it's firstly cuz I'm tired wore-ass out, and secondly because you know, I just, I'm not the most cheerful person. You know I spend most spare time now either studying energy or climate change, and it's not looking good. So uh, yeah sometimes it's hard for me to get focused back on something when the whole goddamned Arctic summer sea ice is gonna be gone by 2017. You know, we're fixing to have heat waves in Siberia this year, and sometimes I feel like a total idiot because I'm worried about a goddamn crack head out here in fuckin, you now Shitttown Alabama, so yeah that' s just a personality disorder of mine. You know sometimes when you call me I'm in kind of an upbeat mood and sometimes like today you've caught me in one of these tired, somber, you know, reflective moods where I've been you know sitting there mulling over climate change for about the past 10 damned hours. Oh, I mean, my god.
+J: I guess if I sound like I'm disinterested today it's firstly cuz I'm tired wore-ass out, and secondly because you know, I just, I'm not the most cheerful person. You know I spend most spare time now either studying energy or climate change, and it's not looking good. So uh, yeah sometimes it's hard for me to get focused back on something when the whole goddamned Arctic summer sea ice is gonna be gone by 2017. You know, we're fixing to have heat waves in Siberia this year, and sometimes I feel like a total idiot because I'm worried about a goddamn crack head out here in fuckin, you now Shitttown Alabama, so yeah that's just a personality disorder of mine. You know sometimes when you call me I'm in kind of an upbeat mood and sometimes like today you've caught me in one of these tired, somber, you know, reflective moods where I've been you know sitting there mulling over climate change for about the past 10 damned hours. Oh, I mean, my god.
 
-When John says he' s been mulling over climate change for the past 10 hours, what I think he means is that he's been mulling over climate change for the past 10 hours. I don't think he's exaggerating. It's like work for him, like he's made it his job.
+When John says he's been mulling over climate change for the past 10 hours, what I think he means is that he's been mulling over climate change for the past 10 hours. I don't think he's exaggerating. It's like work for him, like he's made it his job.
 
 We've now been talking to each other for a year and a half, and while some of that time we've discussed the murder there's been so much other stuff that John wants to chat about. It's interesting stuff but it's all over the place. Even if I haven't talked to him in a while nearly every day he sends me emails about all sorts of global calamities that he continues to keep up with even though they've fallen out of the news.
 
@@ -478,7 +478,7 @@ These little reminders are out there, hidden in crannies around the world. I rec
 
 J: You know I told you I used to make sundials, but you know I made them for the mathematical exercise, I would pick difficult dials to do as a test of my abilities of geometry and trigonometry. And these are things I wish Tyler and Jake could experience. There's a real excitement in geometry and trigonometry that just you know… I think when we was building the swing, I built a swing for Tyler…
 
-This is one of the ways John and Tyler have been passing the hours together lately. They've been constructing an adult swing set, a giant rectangular frame, to the side of John' s house, not far from the apple trees, with a single John Deere tractor seat hanging from it. It has a 20 foot arc of action, John says, which I understand to mean it's a pretty gnarly swing. When John first told me about it he'd said he was building it for himself, but now he amends that.
+This is one of the ways John and Tyler have been passing the hours together lately. They've been constructing an adult swing set, a giant rectangular frame, to the side of John's house, not far from the apple trees, with a single John Deere tractor seat hanging from it. It has a 20 foot arc of action, John says, which I understand to mean it's a pretty gnarly swing. When John first told me about it he'd said he was building it for himself, but now he amends that.
 
 J: You know I think I built the swing for Tyler actually. I found out that an old man of 50, when he swings in a swing for about 20 minutes his back hurts and his knees hurt, so I didn't build it for me after all. Done found that out. So I think I built it for Tyler, fuck it. Oh and I built him a pull up bar cuz he wants to be strong. I told him, well it's nice to be physically strong but you need to be strong between the ears because physical strength goes away, you know. You need to have strong neurons. I told him you need to have a little bit of general algebra and you should always have some trigonometry and you should have some geometry.
 
@@ -509,7 +509,6 @@ B: (Laughing) Oh man…
 J: But in any event, I, what was the question? I forgot.
 
 B: I forgot too.
-
 
 (Phone ringing)
 
