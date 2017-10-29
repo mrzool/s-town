@@ -9,9 +9,9 @@ An ebook containing the full transcript of the S-Town podcast, for convenient an
 
 Originally transcribed by [/u/audiobravo](https://www.reddit.com/user/audio_bravo).
 
-Cover image by [/u/swordandsnorecery](https://www.reddit.com/user/swordandsnorecery)
+Cover image by [Erin Vest](https://www.instagram.com/swordandsnorecery/)
 
-Ebook by [mrzool](http://mrzool.cc).
+Ebook by [Mattia Tezzele](http://mrzool.cc).
 
 Created with the help of [jq](https://stedolan.github.io/jq/), [Pandoc](http://pandoc.org/), [kindlegen](https://www.amazon.com/gp/feature.html?docId=1000765211), [Vim](http://www.vim.org/), and the [Reddit API](https://www.reddit.com/dev/api/).
 
