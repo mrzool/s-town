@@ -1,15 +1,15 @@
 # S-Town Transcript Ebook
 
-![S-Town cover](cover.png)
+The full transcript of the S-Town podcast in ebook form, for convenient and comfortable reading on your e-reader. Available in EPUB and MOBI format (download links below).
 
-An ebook containing the full transcript of the S-Town podcast, for convenient and comfortable reading on your e-reader.
+<img src="cover.png" alt="S-Town book cover by Erin Vest" style="width: 400px;">
 
 [Download EPUB](https://github.com/mrzool/s-town/raw/master/s-town.epub)  
 [Download MOBI](https://github.com/mrzool/s-town/raw/master/s-town.mobi)
 
 Originally transcribed by [/u/audiobravo](https://www.reddit.com/user/audio_bravo).
 
-Cover image by [Erin Vest](https://www.instagram.com/swordandsnorecery/)
+Cover image by [Erin Vest](https://www.instagram.com/swordandsnorecery/).
 
 Ebook by [Mattia Tezzele](http://mrzool.cc).
 
